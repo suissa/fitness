@@ -133,8 +133,6 @@ VEGETAIS ORIENTAIS ALCALINIZANTES
 
 Note que a tendência de formação de ácidos ou alcalinos dos alimentos não tem nada a ver com o pH do próprio alimento. Por exemplo, o limão é muito ácido, entretanto os produtos dele após a digestão e assimilação são muito alcalinos, então o limão é um alcalinizante no corpo. Da mesma forma, a carne é alcalina antes da digestão, mas ela deixa resíduos muito ácidos no corpo, então, como quase todos os produtos animais, a carne forma ácidos.
 
-Leia mais https://www.mundoboaforma.com.br/lista-completa-de-alimentos-alcalinos-e-acidos/#LQGEXZApvDHodsJM.99
-
 ## Aqui Está Uma Lista Que Vai Dos Alimentos Mais Alcalinos Aos Mais Ácidos
 
 ### Extremamente Alcalinos
@@ -161,3 +159,7 @@ Melaço, a maioria das castanhas, aveia, mostarda, azeitona (no vinagre), macarr
 ### Extremamente Ácidos
 Adoçantes artificiais, carne, cerveja, pães, açúcar mascavo, refrigerantes, cereais, chocolate, cigarros e tabaco, café, creme de trigo, custard, veado, drigas, peixe, farinha, sucos de frutas com açúcar, geleias, gelatinas, cordeiro.
 Destilados, xarope de bordo, melaço, macarrão, pickles, porco, aves, frutos do mar, açúcar, sal, chá, pão branco, vinagre branco, alimentos integrais, vinho e iogurte.
+
+
+
+fonte: https://www.mundoboaforma.com.br/lista-completa-de-alimentos-alcalinos-e-acidos/

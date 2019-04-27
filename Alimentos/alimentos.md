@@ -134,3 +134,30 @@ VEGETAIS ORIENTAIS ALCALINIZANTES
 Note que a tendência de formação de ácidos ou alcalinos dos alimentos não tem nada a ver com o pH do próprio alimento. Por exemplo, o limão é muito ácido, entretanto os produtos dele após a digestão e assimilação são muito alcalinos, então o limão é um alcalinizante no corpo. Da mesma forma, a carne é alcalina antes da digestão, mas ela deixa resíduos muito ácidos no corpo, então, como quase todos os produtos animais, a carne forma ácidos.
 
 Leia mais https://www.mundoboaforma.com.br/lista-completa-de-alimentos-alcalinos-e-acidos/#LQGEXZApvDHodsJM.99
+
+## Aqui Está Uma Lista Que Vai Dos Alimentos Mais Alcalinos Aos Mais Ácidos
+
+### Extremamente Alcalinos
+Limão, melancia
+
+### Formadores de Alcalinos
+Melão Cantaloupe, semente caiena, tâmara, figos, laminariales, lima, manga, melão, mamão papaia, algas, uvas sem semente, agrião.
+Aspargo, sucos de frutas, uvas, kiwi, maracujá, pera, abacaxi, uvas passas, ameixas umeboshi, e sucos de vegetais.
+
+### Moderadamente Alcalinos
+Maçã, alfafa, damasco, abacate, banana, groselha, tâmaras, figos, alho, toranja, uva, goiaba, ervas, alface, nectarina, pêssego, pera, ervilha, abóbora, sal marinho.
+Maçã, feijão, beterraba, pimentão, brócolis, repolho, alfarroba, couve-flor, gengibre, uva, alface, laranja, pêssego, ervilha, batata, abóbora, framboesa, morango, milho, nabo, vinagre.
+
+###  Levemente Alcalinos
+Amêndoas, alcachofra, couve-de-bruxelas, cereja, coco, pepino, berinjela, mel, alho-poró, cogumelos, quiabo, cebola, pickles, rabanete, sal marinho, temperos, tomate, vinagre.
+Castanhas, gema de ovo, leite de cabra, maionese, azeite de oliva, sementes de gergelim, soja, queijo de soja, leite de soja, brotos de grãos, tofu, tomate, levedura.
+
+### Neutro
+Manteiga, creme, leite de vaca, margarina, óleos (exceto azeite de oliva) e iogurte.
+Moderadamente Ácidos
+Banana, cevada, mirtilo, farelo, manteiga, cereais, queijos, bolachas, cranberry, feijão seco, coco seco, clara de ovo, ovo inteiro, frutose, leite de cabra, mel, ketchup, xarope de bordo, leite.
+Melaço, a maioria das castanhas, aveia, mostarda, azeitona (no vinagre), macarrão, doces, ameixas, pipoca, batata, arroz, sementes, molho de soja e pão.
+
+### Extremamente Ácidos
+Adoçantes artificiais, carne, cerveja, pães, açúcar mascavo, refrigerantes, cereais, chocolate, cigarros e tabaco, café, creme de trigo, custard, veado, drigas, peixe, farinha, sucos de frutas com açúcar, geleias, gelatinas, cordeiro.
+Destilados, xarope de bordo, melaço, macarrão, pickles, porco, aves, frutos do mar, açúcar, sal, chá, pão branco, vinagre branco, alimentos integrais, vinho e iogurte.

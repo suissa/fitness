@@ -10,10 +10,11 @@ Começarei hoje dia 27 de Abril de 2019.
 
 Como não consegui fazer 3 minutos de primeira, mas fiz:
 
-- 2 min
+- 2:00 min
 - 1:30 min
 - 1:30 min
 - 1:30 min
+- 2:00 min
 
 > Total: 
 

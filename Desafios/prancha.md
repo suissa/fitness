@@ -25,11 +25,12 @@ Séries:
 
 Séries:
 
-- 2:30 min
-- 2:30 min
-- 2:30 min
+- 2:30 min (reta)
+- 2:30 min (reta)
+- 2:30 min (reta)
+- 2:30 min (reta)
 
-> Total: 
+> Total: 10 min
 
 ## Explicação 
 

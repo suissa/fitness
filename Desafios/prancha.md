@@ -29,8 +29,9 @@ Séries:
 - 2:30 min (reta)
 - 2:30 min (reta)
 - 2:30 min (reta)
+- 2:00 min (reta)
 
-> Total: 10 min
+> Total: 12 min
 
 ## Explicação 
 

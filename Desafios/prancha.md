@@ -30,4 +30,7 @@ Agora, para que a prancha equivalha a 1000 abdominais, a dedicação precisa ser
 
 ## Referências:
 
+
+> Agora, para que a prancha equivalha a 1000 abdominais, a dedicação precisa ser maior. Conforme especialistas em performance física, 10 minutos de prancha, alguma vezes por semana, é o necessário para conseguir o abdômen dos sonhos… mas haja força de vontade, por dói, cara leitora!
+
 - [Prancha: conheça o exercício que vale por 1000 abdominais](https://areademulher.r7.com/beleza/prancha-conheca-o-exercicio-que-vale-por-1000-abdominais/)

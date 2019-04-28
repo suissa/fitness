@@ -13,6 +13,9 @@ Como não consegui fazer 3 minutos de primeira, mas fiz:
 - 2 min
 - 1:30 min
 - 1:30 min
+- 1:30 min
+
+> Total: 
 
 
 ## Explicação 

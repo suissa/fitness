@@ -34,11 +34,15 @@ Séries:
 - 2:00 min (reta)
 
 
-*Após o almoço:*
+*A tarde:*
 
 - **3:00 min**
 
-> Total: **17 min**
+*A noite:*
+
+- **3:00 min**
+
+> Total: **20 min**
 
 ## Explicação 
 

@@ -11,7 +11,6 @@ Comecei hoje!
 
 Séries:
 
-*Antes do almoçø:*
 
 - 2:00 min
 - 1:30 min
@@ -20,24 +19,26 @@ Séries:
 - 2:00 min
 - 2:30 min
 
-*Após o almoço:*
-
-- **3:00 min**
-
-> Total: **11 min**
-
 
 ### 28/04/2019
 
 Séries:
+
+*Antes do almoçø:*
 
 - 2:30 min (reta)
 - 2:30 min (reta)
 - 2:30 min (reta)
 - 2:30 min (reta)
 - 2:00 min (reta)
+- 2:00 min (reta)
 
-> Total: 12 min
+
+*Após o almoço:*
+
+- **3:00 min**
+
+> Total: **17 min**
 
 ## Explicação 
 

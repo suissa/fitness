@@ -24,8 +24,7 @@ Séries:
 
 Séries:
 
-*Antes do almoçø:*
-
+*Manhã:*
 - 2:30 min (reta)
 - 2:30 min (reta)
 - 2:30 min (reta)
@@ -35,15 +34,31 @@ Séries:
 
 
 *A tarde:*
+- **3:00 min** (reta)
 
-- **3:00 min**
+*A noite:*
+- **3:00 min** (reta)
+- 2:00 min (reta)
+
+> Total: **22 min** (reta)
+
+
+### 29/04/2019
+
+Séries:
+
+*Manhã:*
+- **3:00 min** (reta)
+
+*A tarde:*
 
 *A noite:*
 
-- **3:00 min**
-- 2:00 min
+> Total: **3 min**  (reta)
 
-> Total: **22 min**
+
+
+<hr>
 
 ## Explicação 
 

@@ -6,11 +6,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 ## 30 dias de Prancha
 
-### 27/04/2019
-Comecei hoje!
-
-Séries:
-
+### 27/04/2019 - Comecei hoje!
 
 - 2:00 min
 - 1:30 min
@@ -19,10 +15,9 @@ Séries:
 - 2:00 min
 - 2:30 min
 
+> Total: **11 min** (reta)
 
 ### 28/04/2019
-
-Séries:
 
 *Manhã:*
 - 2:30 min (reta)
@@ -32,11 +27,10 @@ Séries:
 - 2:00 min (reta)
 - 2:00 min (reta)
 
-
-*A tarde:*
+*Tarde:*
 - **3:00 min** (reta)
 
-*A noite:*
+*Noite:*
 - **3:00 min** (reta)
 - 2:00 min (reta)
 
@@ -48,6 +42,7 @@ Séries:
 Séries:
 
 *Manhã:*
+- **3:00 min** (reta)
 - **3:00 min** (reta)
 - **3:00 min** (reta)
 

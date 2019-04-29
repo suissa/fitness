@@ -55,7 +55,7 @@ Séries:
 
 *A noite:*
 
-> Total: **3 min**  (reta)
+> Total:
 
 
 

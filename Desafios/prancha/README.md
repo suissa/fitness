@@ -56,8 +56,9 @@ Séries:
 - 2:30 min (reta)
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
+- 2:00 min (reta)
 
-> Total: 4:30 min
+> Total: 6:30 min
 
 <hr>
 

@@ -5,6 +5,6 @@ Porém pesquisei melhor sobre a **prancha** e iniciei outro desafio de fazer pra
 para ver se consigo secar minha pacinha para logo mais fazer hipertrofia abdominal com pesos.
 
 
-## [Desafio ABDOMINAL](https://github.com/suissa/fitness/blob/master/Desafios/prancha.md)
+## [Desafio ABDOMINAL](https://github.com/suissa/fitness/tree/master/Desafios/prancha/abdominais)
 
-## [Desafio PRANCHA](https://github.com/suissa/fitness/blob/master/Desafios/prancha.md)
+## [Desafio PRANCHA](https://github.com/suissa/fitness/tree/master/Desafios/prancha)

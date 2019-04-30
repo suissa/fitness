@@ -53,9 +53,11 @@ Séries:
 Séries:
 
 *Tarde:*
-- **2:30 min** (reta)
+- 2:30 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
 
-> Total:
+> Total: 4:30 min
 
 <hr>
 

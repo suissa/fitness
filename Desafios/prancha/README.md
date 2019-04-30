@@ -58,7 +58,10 @@ Séries:
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-> Total: 6:30 min
+*Noite:*
+- 2:00 min (reta)
+
+> Total: 8:30 min
 
 <hr>
 

@@ -46,13 +46,16 @@ Séries:
 - **3:00 min** (reta)
 - **3:00 min** (reta)
 
-*A tarde:*
+> Total: **9:00 min**
 
-*A noite:*
+### 30/04/2019
+
+Séries:
+
+*Tarde:*
+- **2:30 min** (reta)
 
 > Total:
-
-
 
 <hr>
 

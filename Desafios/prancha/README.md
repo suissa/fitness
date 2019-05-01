@@ -72,6 +72,9 @@ Séries:
 
 *Manhã:*
 - **3:00 min (reta)**
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+- 2:00 min (reta)
 
 > Total: 
 

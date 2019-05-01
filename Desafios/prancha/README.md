@@ -66,7 +66,17 @@ Séries:
 
 > Total: **12 min**
 
+### 01/05/2019
+
+Séries:
+
+*Manhã:*
+- **3:00 min (reta)**
+
+> Total: 
+
 <hr>
+
 
 ## Explicação 
 

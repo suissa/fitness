@@ -84,6 +84,7 @@ Séries:
 
 *Manhã:*
 - **4:00 min (reta)**
+- 2:30 min (reta)
 
 > Total: 
 

@@ -9,6 +9,10 @@ Curso da Udemy: https://www.udemy.com/internationally-accredited-diploma-certifi
 
 ## TEA - Thermic Effect od Activity
 
+## TDEE
+
+> BMR + TEF + TEA
+
 
 ## Macronutrientes
 

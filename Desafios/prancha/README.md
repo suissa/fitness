@@ -76,7 +76,11 @@ Séries:
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-> Total: 7 min //meu ombro ta zoado :(
+*Noite:*
+- **4:00 min (reta)**
+- 2:00 min (reta)
+
+> Total: **13min**
 
 <hr>
 

@@ -78,7 +78,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 > Total: **13min**
 
 
-### 01/05/2019
+### 02/05/2019
 
 Séries:
 
@@ -86,7 +86,25 @@ Séries:
 - **4:00 min (reta)**
 - 2:30 min (reta)
 
+> Total: 6:30 // PORRA NAO FIZ os 10 minutos! COmpensarei nos outros dias!
+
+
+### 03/05/2019
+
+**NAO FIZ PORRA NENHUMA! LOGO FAREI 20 MIN NO OUTRO DIA** 
+
+
+### 04/05/2019
+
+Séries:
+
+*Manhã:*
+- **5:00 min (reta)** // MEU RECORD ATUAL
+
+
 > Total: 
+
+
 
 <hr>
 

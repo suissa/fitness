@@ -97,7 +97,8 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - **5:00 min (reta)** // MEU RECORD ATUAL
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
-- + 150 abdominais mov. completo
+- + 150 abdominais mov. completo 
+- + 100 abdominais mov. completo c/ pernas retas
 
 > Total: 
 

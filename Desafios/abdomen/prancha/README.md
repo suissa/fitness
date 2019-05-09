@@ -118,15 +118,17 @@ Graças a uma luxação no meu onro direito fiquei sem fazer prancha até HOJE!
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 - **3:00 min (reta)**
+- 2:00 min (lateral esquerda)
+- 1:30 min (lateral direita)
 <hr>
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
 <hr>
 
-// AINDA QUERO FAZER ATEH 20 min!!!
 
-> Total: **18:30min**
+> Total: **22min**
 
+#### Objetivo alcançado de fazer pelo menos 20min ao total.
 
 
 <hr>

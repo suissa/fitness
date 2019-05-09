@@ -100,6 +100,17 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - + 150 abdominais mov. completo 
 - + 100 abdominais mov. completo c/ pernas retas
 
+> Total: **9min**
+
+
+### 09/05/2019
+
+Graças a uma luxação no meu onro direito fiquei sem fazer prancha até HOJE!
+
+*Manhã:*
+- **3:00 min (reta)**
+- **3:00 min (reta)**
+
 > Total: 
 
 

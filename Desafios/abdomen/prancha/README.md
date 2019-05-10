@@ -105,7 +105,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 ### 09/05/2019
 
-Graças a uma luxação no meu onro direito fiquei sem fazer prancha até HOJE!
+Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 
 *Manhã:*
 - **3:00 min (reta)**
@@ -130,6 +130,17 @@ Graças a uma luxação no meu onro direito fiquei sem fazer prancha até HOJE!
 
 #### Objetivo alcançado de fazer pelo menos 20min ao total.
 
+
+
+### 10/05/2019
+
+Voltando com tudo pra prancha!
+
+*Manhã:*
+- **4:00 min (reta)**
+
+
+> Total: 
 
 <hr>
 

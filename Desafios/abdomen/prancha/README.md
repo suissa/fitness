@@ -145,13 +145,19 @@ Voltando com tudo pra prancha!
 *Tarde* 
 - 3:00 min (reta)
 - 1:00 min (lateral direita)
+- **2:00 min (lateral esquerda)**
+
+*Noite* 
+- 1:30 min (lateral esquerda)
+- **2:00 min (lateral direita)**
+- 2:00 min (reta)
 
 <hr>
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
 <hr>
 
-> Total: **14min**
+> Total: **21:30min**
 
 <hr>
 

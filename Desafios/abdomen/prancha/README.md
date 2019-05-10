@@ -138,6 +138,7 @@ Voltando com tudo pra prancha!
 
 *Manhã:*
 - **4:00 min (reta)**
+- **2:00 min (l. esquerda)**
 
 
 > Total: 

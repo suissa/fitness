@@ -200,6 +200,7 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
+- 2:00 min (reta)
 
 
 *Tarde* 

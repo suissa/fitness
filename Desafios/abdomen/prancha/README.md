@@ -8,12 +8,12 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 ### 27/04/2019 - Comecei hoje!
 
-- 2:00 min
-- 1:30 min
-- 1:30 min
-- 1:30 min
-- 2:00 min
-- 2:30 min
+- 2:00 min (reta)
+- 1:30 min (reta)
+- 1:30 min (reta)
+- 1:30 min (reta)
+- 2:00 min (reta)
+- 2:30 min (reta)
 
 > Total: **11 min** (reta)
 
@@ -105,6 +105,9 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - **5:00 min (reta)** // MEU RECORD ATUAL
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
+
+> abdominais
+
 - + 150 abdominais mov. completo 
 - + 100 abdominais mov. completo c/ pernas retas
 
@@ -130,6 +133,8 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 - **3:00 min (reta)**
 - 2:00 min (lateral esquerda)
 - 1:30 min (lateral direita)
+
+> abdominais
 
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
@@ -163,6 +168,8 @@ Voltando com tudo pra prancha!
 - 1:30 min (lateral esquerda)
 - **2:00 min (lateral direita)**
 - 2:00 min (reta)
+
+> abdominais
 
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)

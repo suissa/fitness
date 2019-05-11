@@ -204,7 +204,9 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 
 > fortalecimento lombar
 
-- 6 séries de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
+- 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
+- 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
+- 4x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 
 *Tarde* 
 

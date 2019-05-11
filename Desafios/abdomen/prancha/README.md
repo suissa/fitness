@@ -17,6 +17,8 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 > Total: **11 min** (reta)
 
+<hr>
+
 ### 28/04/2019
 
 *Manhã:*
@@ -46,6 +48,8 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 > Total: **9:00 min**
 
+<hr>
+
 ### 30/04/2019
 
 *Tarde:*
@@ -62,6 +66,8 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 > Total: **12 min**
 
+<hr>
+
 ### 01/05/2019
 
 *Manhã:*
@@ -76,6 +82,8 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 > Total: **13min**
 
+
+<hr>
 
 ### 02/05/2019
 
@@ -103,6 +111,8 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 > Total: **9min**
 
 
+<hr>
+
 ### 09/05/2019
 
 Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
@@ -120,16 +130,18 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 - **3:00 min (reta)**
 - 2:00 min (lateral esquerda)
 - 1:30 min (lateral direita)
-<hr>
+
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
-<hr>
+
 
 
 > Total: **22min**
 
 #### Objetivo alcançado de fazer pelo menos 20min ao total.
 
+
+<hr>
 
 
 ### 10/05/2019
@@ -152,12 +164,13 @@ Voltando com tudo pra prancha!
 - **2:00 min (lateral direita)**
 - 2:00 min (reta)
 
-<hr>
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
-<hr>
+
 
 > Total: **21:30min**
+
+<hr>
 
 
 ### 11/05/2019
@@ -169,21 +182,15 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-<hr>
-
 > 3 séries de fortalecimento lombar com 10 repetições
 
-<hr>
 - 100 abdominais (lateral direita)
 - 100 abdominais (lateral esquerda)
-<hr>
 
 
 *Tarde* 
 
 *Noite* 
-
-
 
 
 > Total: 

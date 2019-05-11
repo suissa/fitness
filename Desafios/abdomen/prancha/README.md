@@ -167,6 +167,7 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso.
 *Manhã:*
 - **3:00 min (reta)**
 - 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
 
 *Tarde* 
 

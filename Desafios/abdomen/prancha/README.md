@@ -213,12 +213,18 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 
 > *Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
 
+> **prancha**
+
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 2:00 min (reta)
+
 *Tarde* 
 
 *Noite* 
 
 
-> Total: 
+> Total: **15min** de prancha
 
 
 <hr>

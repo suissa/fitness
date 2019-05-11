@@ -6,7 +6,9 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 ## 30 dias de Prancha
 
-### 27/04/2019 - Comecei hoje!
+> ▶️**Meta diária inicial:** *10 minutos*
+
+### 27/04/2019 - Sábado- Comecei hoje!
 
 - 2:00 min (reta)
 - 1:30 min (reta)
@@ -19,7 +21,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 <hr>
 
-### 28/04/2019
+### 28/04/2019 - Domingo-feira
 
 *Manhã:*
 - 2:30 min (reta)
@@ -39,7 +41,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 > Total: **22 min** (reta) 🔚🔥💪
 
 
-### 29/04/2019
+### 29/04/2019 - Segunda-feira
 
 *Manhã:*
 - 🌟**3:00 min** (reta)
@@ -50,7 +52,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 <hr>
 
-### 30/04/2019
+### 30/04/2019 - Terça-feira
 
 *Tarde:*
 - 🌟**2:30 min (reta)**
@@ -68,7 +70,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 <hr>
 
-### 01/05/2019
+### 01/05/2019 - Quarta-feira
 
 *Manhã:*
 - 3:00 min (reta)
@@ -85,7 +87,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 <hr>
 
-### 02/05/2019
+### 02/05/2019 - Quinta-feira
 
 *Manhã:*
 - 🌟**4:00 min (reta)**
@@ -95,12 +97,12 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 > 😡**PORRA NAO FIZ os 10 minutos! Compensarei nos outros dias!**
 
 
-### 03/05/2019
+### 03/05/2019 - Sexta-feira
 
 **NAO FIZ PORRA NENHUMA! LOGO FAREI 20 MIN NO OUTRO DIA** 
 
 
-### 04/05/2019
+### 04/05/2019 - Sábado
 
 *Manhã:*
 - 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
@@ -117,7 +119,9 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 <hr>
 
-### 09/05/2019
+> 🔝**Meta diária MODIFICADA inicial:** *20 minutos*
+
+### 09/05/2019 - Quinta-feira
 
 Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 
@@ -150,7 +154,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 <hr>
 
 
-### 10/05/2019
+### 10/05/2019 - Sexta-feira
 
 Voltando com tudo pra prancha!
 
@@ -181,7 +185,7 @@ Voltando com tudo pra prancha!
 <hr>
 
 
-### 11/05/2019
+### 11/05/2019 - Sábado
 
 
 ***Etapa iniciada às 08:00***

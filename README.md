@@ -37,6 +37,8 @@ Exemplo de uma notícia antiga:
 
 Criar um sistema que crie um diário o qual centralize TODAS as informações correlatas do praticante de exercícios físicos.
 
+Com isso poder criar uma gameficação, como criei pra mim, para cada usuário, onde não exista um ranking GERAL, o sistema é feito para O USUÁRIO, o qual poderá ter acesso a diferentes informações que o auxilie na sua jornada física.
+
 
 ### Seções
 

@@ -162,12 +162,14 @@ Voltando com tudo pra prancha!
 
 ### 11/05/2019
 
-Sábado farei MENOS prancha, mas algumas abdominais usando peso.
+Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento Lombar e de Core.
 
 *Manhã:*
 - **3:00 min (reta)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
+
+> 3 séries de fortalecimento lombar com 10 repetições
 
 *Tarde* 
 

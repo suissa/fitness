@@ -8,6 +8,10 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 > ▶️**Meta diária inicial:** *10 minutos*
 
+**Inicialmente eu só fiz a prancha reta.**
+
+![](https://i.imgur.com/OmBrjNA.jpg)
+
 ### 27/04/2019 - Sábado- Comecei hoje!
 
 - 2:00 min (reta)
@@ -53,6 +57,11 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 <hr>
 
 ### 30/04/2019 - Terça-feira
+
+
+**Depois criei CORAGEM e fiz a prancha lateral!**
+
+![](https://i.imgur.com/SAERh35.jpg)
 
 *Tarde:*
 - 🌟**2:30 min (reta)**

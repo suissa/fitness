@@ -102,7 +102,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 ### 04/05/2019
 
 *Manhã:*
-- **5:00 min (reta)** // MEU RECORD ATUAL
+- 🌟**5:00 min (reta)**🏆 // MEU RECORD ATUAL
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
 
@@ -121,16 +121,16 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 
 *Manhã:*
-- **3:00 min (reta)**
-- **3:00 min (reta)**
+- 🌟**3:00 min (reta)**
+- 🌟**3:00 min (reta)**
 - 1:30 min (lateral esquerda)
 - 2:00 min (lateral direita) // de raiva
 
 *Tarde* 
-- **3:00 min (reta)**
+- 🌟**3:00 min (reta)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- **3:00 min (reta)**
+- 🌟**3:00 min (reta)**
 - 2:00 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
@@ -154,19 +154,19 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 Voltando com tudo pra prancha!
 
 *Manhã:*
-- **4:00 min (reta)**
-- **2:00 min (lateral esquerda)**
-- **2:00 min (lateral direita)**
+- 🌟**4:00 min (reta)**
+- 🌟**2:00 min (lateral esquerda)**
+- 🌟**2:00 min (lateral direita)**
 - 2:00 min (reta)
 
 *Tarde* 
 - 3:00 min (reta)
 - 1:00 min (lateral direita)
-- **2:00 min (lateral esquerda)**
+- 🌟**2:00 min (lateral esquerda)**
 
 *Noite* 
 - 1:30 min (lateral esquerda)
-- **2:00 min (lateral direita)**
+- 🌟**2:00 min (lateral direita)**
 - 2:00 min (reta)
 
 > abdominais
@@ -186,7 +186,7 @@ Voltando com tudo pra prancha!
 ***Etapa iniciada às 08:00***
 *Manhã:*
 
-- **3:00 min (reta)**
+- 🌟**3:00 min (reta)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 

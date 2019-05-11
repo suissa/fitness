@@ -182,7 +182,9 @@ Voltando com tudo pra prancha!
 
 ### 11/05/2019
 
+
 ***Etapa iniciada às 08:00***
+*Manhã:*
 
 - **3:00 min (reta)**
 - 1:30 min (lateral esquerda)
@@ -222,6 +224,16 @@ Voltando com tudo pra prancha!
 - 2:00 min (reta)
 
 ***Etapa finalizada às 13:22***
+
+<hr>
+
+***Etapa iniciada às 15:50***
+*Tarde:*
+
+> **abdominais**
+
+- 100 abdominais (lateral esquerda)
+- 100 abdominais (lateral direita)
 
 #### Total: **19min** de prancha
 

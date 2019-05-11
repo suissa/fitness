@@ -175,6 +175,7 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 
 <hr>
 - 100 abdominais (lateral direita)
+- 100 abdominais (lateral esquerda)
 <hr>
 
 

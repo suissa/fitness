@@ -13,9 +13,9 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - 1:30 min (reta)
 - 1:30 min (reta)
 - 2:00 min (reta)
-- 2:30 min (reta)
+- 🌟**2:30 min (reta)**
 
-> Total: **11 min** (reta)
+> Total: **11 min** (reta) 🔚👍
 
 <hr>
 
@@ -30,30 +30,30 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - 2:00 min (reta)
 
 *Tarde:*
-- **3:00 min** (reta)
+- 🌟**3:00 min** (reta)
 
 *Noite:*
-- **3:00 min** (reta)
+- 🌟**3:00 min** (reta)
 - 2:00 min (reta)
 
-> Total: **22 min** (reta)
+> Total: **22 min** (reta) 🔚🔥💪
 
 
 ### 29/04/2019
 
 *Manhã:*
-- **3:00 min** (reta)
-- **3:00 min** (reta)
-- **3:00 min** (reta)
+- 🌟**3:00 min** (reta)
+- 🌟**3:00 min** (reta)
+- 🌟**3:00 min** (reta)
 
-#### Total: **9:00 min**
+#### Total: **9:00 min** 🔚👎
 
 <hr>
 
 ### 30/04/2019
 
 *Tarde:*
-- 2:30 min (reta)
+- 🌟**2:30 min (reta)**
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
@@ -64,23 +64,23 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - 1:00 min (lateral direita)
 - 1:30 min (reta)
 
-> Total: **12 min**
+> Total: **12 min** 🔚👍
 
 <hr>
 
 ### 01/05/2019
 
 *Manhã:*
-- **3:00 min (reta)**
+- 3:00 min (reta)
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
 *Noite:*
-- **4:00 min (reta)**
+- 🌟**4:00 min (reta)**
 - 2:00 min (reta)
 
-> Total: **13min**
+> Total: **13min** 🔚👍
 
 
 <hr>
@@ -88,10 +88,11 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 ### 02/05/2019
 
 *Manhã:*
-- **4:00 min (reta)**
+- 🌟**4:00 min (reta)**
 - 2:30 min (reta)
 
-#### Total: 6:30 // PORRA NAO FIZ os 10 minutos! COmpensarei nos outros dias!
+#### Total: 6:30  🔚👎
+> 😡**PORRA NAO FIZ os 10 minutos! Compensarei nos outros dias!**
 
 
 ### 03/05/2019
@@ -102,7 +103,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 ### 04/05/2019
 
 *Manhã:*
-- 🌟**5:00 min (reta)**🏆 // MEU RECORD ATUAL
+- 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
 
@@ -111,7 +112,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - + 150 abdominais mov. completo 
 - + 100 abdominais mov. completo c/ pernas retas
 
-#### Total: **9min**
+#### Total: **9min**🔚👎
 
 
 <hr>
@@ -141,7 +142,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 
 
 
-#### Total: **22min**
+#### Total: **22min** 🔥
 
 ##### Objetivo alcançado de fazer pelo menos 20min ao total.
 
@@ -175,7 +176,7 @@ Voltando com tudo pra prancha!
 - 100 abdominais (lateral direita)
 
 
-> Total: **21:30min**
+> Total: **21:30min** 🔥
 
 <hr>
 
@@ -190,14 +191,14 @@ Voltando com tudo pra prancha!
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-> **fortalecimento lombar**
+> **fortalecimento lombar** 💪🙏
 
 - 3 séries de fortalecimento lombar com 10 repetições
 
-> **abdominais**
+> **abdominais**🙏
 
-- 100 abdominais (lateral direita)
-- 100 abdominais (lateral esquerda)
+- 🌟**100 abdominais (lateral direita)**
+- 🌟**100 abdominais (lateral esquerda)**
 
 > **prancha**
 
@@ -205,14 +206,14 @@ Voltando com tudo pra prancha!
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-> **fortalecimento lombar**
+> **fortalecimento lombar** 💪🙏
 
 - 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
 - 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
 - 4x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-> *Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
+> ⚠️*Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
 
 > **prancha**
 
@@ -230,13 +231,18 @@ Voltando com tudo pra prancha!
 ***Etapa iniciada às 15:50***
 *Tarde:*
 
-> **abdominais**
+> **abdominais**🙏
 
-- 100 abdominais (lateral esquerda)
-- 100 abdominais (lateral direita)
-- 5x 20 abdominais c/ 8Kg (mov completo)
+- 🌟**100 abdominais (lateral esquerda)**
+- 🌟**100 abdominais (lateral direita)**
+- 🌟**5x 20 abdominais c/ 8Kg (mov completo)**💪
 
-#### Total: **19min** de prancha
+
+> **prancha**
+
+- 2:00 min (reta)
+
+#### Total: **21min** de prancha 🔥🏆
 
 
 <hr>

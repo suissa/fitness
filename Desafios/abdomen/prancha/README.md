@@ -189,25 +189,29 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
+> **fortalecimento lombar**
+
 > 3 séries de fortalecimento lombar com 10 repetições
 
-> abdominais
+> **abdominais**
 
 - 100 abdominais (lateral direita)
 - 100 abdominais (lateral esquerda)
 
-> prancha
+> **prancha**
 
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-> fortalecimento lombar
+> **fortalecimento lombar**
 
 - 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
 - 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
 - 4x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
+
+> *Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
 
 *Tarde* 
 

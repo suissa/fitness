@@ -32,6 +32,12 @@ Exemplo de uma notícia antiga:
 
 *fonte: [](https://noticias.uol.com.br/saude/ultimas-noticias/redacao/2017/06/29/pilula-do-exercicio-pode-mesmo-substituir-a-atividade-fisica.htm)*
 
+
+### Ideia Central
+
+Criar um sistema que crie um diário o qual centralize TODAS as informações correlatas do praticante de exercícios físicos.
+
+
 ### Seções
 
 #### Alimentação

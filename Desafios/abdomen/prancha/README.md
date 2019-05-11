@@ -202,6 +202,9 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
+> fortalecimento lombar
+
+- 6 séries de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
 
 *Tarde* 
 

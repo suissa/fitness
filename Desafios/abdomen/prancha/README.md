@@ -180,6 +180,7 @@ Voltando com tudo pra prancha!
 <hr>
 
 
+### 11/05/2019
 
 - **3:00 min (reta)**
 - 1:30 min (lateral esquerda)
@@ -214,7 +215,10 @@ Voltando com tudo pra prancha!
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 - 2:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
 
+***Etapa finalizada às 13:18***
 
 #### Total: **15min** de prancha
 

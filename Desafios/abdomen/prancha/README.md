@@ -191,8 +191,15 @@ Sábado farei MENOS prancha, mas algumas abdominais usando peso, fortalecimento 
 
 > 3 séries de fortalecimento lombar com 10 repetições
 
+> abdominais
+
 - 100 abdominais (lateral direita)
 - 100 abdominais (lateral esquerda)
+
+> prancha
+
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
 
 
 *Tarde* 

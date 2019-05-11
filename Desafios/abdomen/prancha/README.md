@@ -159,6 +159,24 @@ Voltando com tudo pra prancha!
 
 > Total: **21:30min**
 
+
+### 11/05/2019
+
+Sábado farei MENOS prancha, mas algumas abdominais usando peso.
+
+*Manhã:*
+- **3:00 min (reta)**
+
+*Tarde* 
+
+*Noite* 
+
+
+
+
+> Total: 
+
+
 <hr>
 
 

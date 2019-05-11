@@ -234,6 +234,7 @@ Voltando com tudo pra prancha!
 
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
+- 5x 20 abdominais c/ 8Kg (mov completo)
 
 #### Total: **19min** de prancha
 

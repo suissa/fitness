@@ -182,6 +182,8 @@ Voltando com tudo pra prancha!
 
 ### 11/05/2019
 
+***Etapa iniciada às 08:00***
+
 - **3:00 min (reta)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)

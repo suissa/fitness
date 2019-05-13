@@ -199,8 +199,7 @@ Vamo q vamo!!!
 ### 11/05/2019 - Sábado
 
 
-***Etapa iniciada às 08:00***
-*Manhã:*
+🔛***Etapa iniciada às 08:00***
 
 - 🌟**3:00 min (reta)**
 - 1:30 min (lateral esquerda)
@@ -230,7 +229,7 @@ Vamo q vamo!!!
 
 > ⚠️*Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
 
-> **prancha**
+> **prancha**💘
 
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
@@ -239,12 +238,11 @@ Vamo q vamo!!!
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-***Etapa finalizada às 13:22***
+***Etapa finalizada às 13:22***🔚
 
 <hr>
 
-***Etapa iniciada às 15:50***
-*Tarde:*
+🔛***Etapa iniciada às 15:50***
 
 > **abdominais**🙏
 
@@ -256,6 +254,8 @@ Vamo q vamo!!!
 > **prancha**💘
 
 - 2:00 min (reta)
+
+***Etapa finalizada às 18:00***🔚
 
 
 #### Total: **21min** de prancha 🔥🏆
@@ -277,20 +277,25 @@ Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a
 
 > **fortalecimento lombar** 💪🙏
 
-***Etapa iniciada às 09:10***
+🔛***Etapa iniciada às 09:10***
 
 - 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
 - 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
 - 3x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 3x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-***Etapa finalizada às 09:40***
+***Etapa finalizada às 09:40***🔚
 
 > Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
 
+🔛***Etapa iniciada às 10:10***
+
 > **prancha**💘
 
-***Etapa iniciada às 10:10***
+- 3:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+
 
 <hr>
 

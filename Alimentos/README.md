@@ -13,7 +13,13 @@
 - **09:50 Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.**
 - 10:00: 1 xícara de café c/ adoçante sacarina
 - 10:40: 1 copo 200ml de energético
+  - valor energético: 59kcal/250Kl
+  - carboidrato: 15g;
+  - sódio: 25mg
 - 11:40: 1 copo 200ml de energético
+  - valor energético: 59kcal/250Kl
+  - carboidrato: 15g;
+  - sódio: 25mg
 - 12:25: 1 xícara de café c/ adoçante sacarina
 
 #### Almoço - 13:30
@@ -31,3 +37,11 @@
 
 - 16:40: 1 xícara de café c/ adoçante sacarina
 - 18:00: 1 xícara de café c/ adoçante sacarina
+- 19:00: 1 copo 200ml de energético
+  - valor energético: 59kcal/250Kl
+  - carboidrato: 15g;
+  - sódio: 25mg
+- 19:30: 1 copo 200ml de energético
+  - valor energético: 59kcal/250Kl
+  - carboidrato: 15g;
+  - sódio: 25mg

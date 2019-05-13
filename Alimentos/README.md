@@ -45,3 +45,10 @@
   - valor energético: 59kcal/250Kl
   - carboidrato: 15g;
   - sódio: 25mg
+
+
+#### Janta - 20:40
+
+- 250g batata doce cozida/grelhada
+- 1 tomate
+- sal rosa do Himalaia

@@ -295,7 +295,12 @@ Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a
 - 3:00 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
+- 1:00 min (reta com 15 elevações de cada perna) 
+- 1:00 min (reta com 15 elevações de cada perna) 
 
+
+
+#### Total: **8min** de prancha
 
 <hr>
 

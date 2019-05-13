@@ -148,7 +148,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 - 2:00 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-> abdominais
+> **abdominais**🙏
 
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
@@ -165,7 +165,9 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 
 ### 10/05/2019 - Sexta-feira
 
-Voltando com tudo pra prancha!
+Vamo q vamo!!!
+
+> **prancha**💘
 
 *Manhã:*
 - 🌟**4:00 min (reta)**
@@ -213,7 +215,7 @@ Voltando com tudo pra prancha!
 - 🌟**100 abdominais (lateral direita)**
 - 🌟**100 abdominais (lateral esquerda)**
 
-> **prancha**
+> **prancha**💘
 
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
@@ -251,18 +253,46 @@ Voltando com tudo pra prancha!
 - 🌟**5x 20 abdominais c/ 8Kg (mov completo)**💪
 
 
-> **prancha**
+> **prancha**💘
 
 - 2:00 min (reta)
 
-
-> ***TO BEBEBNDO!!!!***
 
 #### Total: **21min** de prancha 🔥🏆
 
 
 <hr>
 
+### 12/05/2019 - DOMINGO :trollface:
+
+#### DESCANSO TOTAL :trollface:
+
+<hr>
+
+
+### 13/05/2019 - Segunda-feira
+
+
+Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a todo o resto.
+
+> **fortalecimento lombar** 💪🙏
+
+***Etapa iniciada às 09:10***
+
+- 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
+- 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
+- 3x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
+- 3x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
+
+***Etapa finalizada às 09:40***
+
+> Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
+
+> **prancha**💘
+
+***Etapa iniciada às 10:10***
+
+<hr>
 
 ## Explicação 
 

@@ -314,7 +314,31 @@ Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a
 
 ***Etapa finalizada às 12:40***🔚
 
-#### Total: **22min** de prancha🔥🏆
+
+
+> **fortalecimento lombar** 💪🙏
+
+🔛***Etapa iniciada às 17:30***
+
+- 4x de 30 repetições sem peso [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
+- 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
+
+***Etapa finalizada às 18:00***🔚
+
+
+> **prancha**💘
+
+🔛***Etapa iniciada às 18:10***
+
+- 2:00 min (reta parada)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 1:00 min (reta movimentando p/ frente e trás)🆕
+
+***Etapa finalizada às 18:29***🔚
+
+
+#### Total: **28min** de prancha🔥🏆
 
 <hr>
 

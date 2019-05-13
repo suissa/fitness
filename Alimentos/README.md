@@ -25,3 +25,9 @@
 > pós-almoço
 
 - 13:50: 1 xícara de café c/ adoçante sacarina
+- 15:05: 1 pedaço pequeno de cuque de banana
+
+> pós-cochilo
+
+- 16:40: 1 xícara de café c/ adoçante sacarina
+- 18:00: 1 xícara de café c/ adoçante sacarina

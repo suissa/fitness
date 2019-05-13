@@ -258,7 +258,7 @@ Vamo q vamo!!!
 ***Etapa finalizada às 18:00***🔚
 
 
-#### Total: **21min** de prancha 🔥🏆
+#### Total: **21min** de prancha 🔥
 
 
 <hr>
@@ -310,9 +310,11 @@ Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a
 - 2:00 min (reta parada)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
+- 2:20 min (reta parada)
 
+***Etapa finalizada às 12:40***🔚
 
-#### Total: **19:40min** de prancha
+#### Total: **22min** de prancha🔥🏆
 
 <hr>
 

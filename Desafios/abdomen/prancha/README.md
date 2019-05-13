@@ -308,9 +308,11 @@ Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a
 
 - 1:00 min (reta movimentando p/ frente e trás)🆕
 - 2:00 min (reta parada)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
 
 
-#### Total: **16:40min** de prancha
+#### Total: **19:40min** de prancha
 
 <hr>
 

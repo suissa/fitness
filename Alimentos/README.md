@@ -12,4 +12,4 @@
 - 10:00: 1 xícara de café c/ adoçante sacarina
 - 10:40: 1 copo 200ml de energético
 - 11:40: 1 copo 200ml de energético
-- 12:10: 1 xícara de café c/ adoçante sacarina
+- 12:25: 1 xícara de café c/ adoçante sacarina

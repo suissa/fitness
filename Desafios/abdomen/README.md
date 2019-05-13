@@ -354,11 +354,13 @@ Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a
 - 🌟**5x 30 abdominais c/ 8Kg (mov completo)**💪🏆
 - 🌟**100 abdominais (lateral direita)**
 - 🌟**100 abdominais (lateral esquerda)**
+- 🌟**75 abdominais c/ 8Kg (lateral direita)**💪
+- 🌟**75 abdominais c/ 8Kg (lateral esquerda)**💪
 
-***Etapa finalizada às 19:30***🔚
+***Etapa finalizada às 19:48***🔚
 
 #### Total PRANCHA: **28min** de prancha🔥🏆
-#### Total ABDOMINAIS: 350
+#### Total ABDOMINAIS: 500🔥💪
 
 <hr>
 

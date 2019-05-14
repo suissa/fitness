@@ -93,5 +93,6 @@
 
 - 16:50: 1 xícara de café c/ adoçante sacarina
 - 17:50: 300g de carne vermelha de churrasco + pequeno porção de tomate
+- 18:00: 400ml suco de couve com genbibre e limao
 
 

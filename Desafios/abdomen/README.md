@@ -267,7 +267,7 @@ Vamo q vamo!!!
 ***Etapa finalizada às 18:00***🔚
 
 
-#### Total: **21min** de prancha 🔥
+#### Total: **21min** de prancha🔥
 
 
 <hr>
@@ -359,7 +359,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 ***Etapa finalizada às 19:48***🔚
 
-#### Total PRANCHA: **28min** de prancha🔥🏆
+#### Total PRANCHA: **28min**🔥🏆
 #### Total ABDOMINAIS: 500🔥💪
 
 
@@ -421,11 +421,15 @@ Gostei desse modo, pega bem os oblíquos:
 
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- **🌟80x 8Kg (mov. completo)**🏆
+- 40x 8Kg (mov. completo)
 
-***Etapa finalizada às 19:00***🔚
+***Etapa finalizada às 20:00***🔚
 
 #### Total PRANCHA: **21min** de prancha🔥🏆
-#### Total ABDOMINAIS: 240
+#### Total ABDOMINAIS: 400⁉️😢
 
 
 

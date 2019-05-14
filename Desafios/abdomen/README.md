@@ -351,11 +351,11 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 🔛***Etapa iniciada às 18:40***
 
-- 🌟**5x 30x c/ 8Kg (mov completo)**💪🏆
+- 🌟**5x 30x c/ 8Kg (mov completo)**💪
 - 🌟**100x (lateral direita)**
 - 🌟**100x (lateral esquerda)**
-- 🌟**75x c/ 8Kg (lateral direita)**💪
-- 🌟**75x c/ 8Kg (lateral esquerda)**💪
+- 🌟**75x c/ 8Kg (lateral direita)**💪🏆
+- 🌟**75x c/ 8Kg (lateral esquerda)**💪🏆
 
 ***Etapa finalizada às 19:48***🔚
 
@@ -413,14 +413,19 @@ Gostei desse modo, pega bem os oblíquos:
 
 🔛***Etapa iniciada às 17:00***
 
-- 60x 8Kg (mov. completo)
+- **🌟60x 8Kg (mov. completo)**🏆
 - 40x 8Kg (mov. completo)
 - 40x 8Kg (mov. completo)
 
-***Etapa finalizada às ***🔚
+> Hiato pq ta rolando xurras aqui em casa
+
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+
+***Etapa finalizada às 19:00***🔚
 
 #### Total PRANCHA: **21min** de prancha🔥🏆
-#### Total ABDOMINAIS: 140
+#### Total ABDOMINAIS: 240
 
 
 

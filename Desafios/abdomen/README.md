@@ -403,9 +403,15 @@ Gostei desse modo, pega bem os oblíquos:
 ![](https://i.imgur.com/4AitID4.jpg)
 
 - 6:40min => 10x cada lado segurando 20s (lateral com torção)🆕
-- 5:00min => 5x cada lado segurando 30s (lateral com torção)🆕
+- 5:00min => 5x cada lado segurando 30s (lateral com torção)🆕💪
+- 1:20 min (reta com 15 elevações de cada perna)🆕 
 
-***Etapa finalizada às 12:10***🔚
+***Etapa finalizada às 12:30***🔚
+
+
+#### Total PRANCHA: **19:40min** de prancha🔥🏆
+#### Total ABDOMINAIS: 0
+
 
 
 <hr>

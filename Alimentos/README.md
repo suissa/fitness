@@ -79,3 +79,11 @@
   - valor energético: 59kcal/250Kl
   - carboidrato: 15g;
   - sódio: 25mg
+
+
+#### Almoço - 12:30
+
+- 200g de peito de frango grelhado
+- alface verde (porção média)
+- 200g de batata doce cozida
+- 200ml suco de couve com genbibre e limao

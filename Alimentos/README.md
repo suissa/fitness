@@ -74,3 +74,4 @@
 
 - **Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.**
 - 1 xícara de café c/ adoçante sacarina
+- 1 xícara de chá (alecrim, camomila, chá branco) c/ adoçante sacarina

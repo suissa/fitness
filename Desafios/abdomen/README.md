@@ -304,8 +304,8 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 - 🌟**3:00 min (reta)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- 1:00 min (reta com 15 elevações de cada perna) 
-- 1:00 min (reta com 15 elevações de cada perna) 
+- 1:00 min (reta com 15 elevações de cada perna)🆕
+- 1:00 min (reta com 15 elevações de cada perna)🆕 
 
 🆕 ***NOVO TIPO DE PRANCHA: Prancha lateral com torção***
 
@@ -373,14 +373,21 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 > **fortalecimento lombar** 💪🙏
 
-🔛***Etapa iniciada às 09:10***
+🔛***Etapa iniciada às 08:00***
 
 - 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
 - 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
 - 3x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
-- 3x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
+- 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
 ***Etapa finalizada às 09:40***🔚
+
+
+
+
+
+
+
 
 <hr>
 

@@ -49,6 +49,28 @@
 
 #### Janta - 20:40
 
-- 250g batata doce cozida/grelhada
-- 1 tomate
-- sal rosa do Himalaia
+*Entrada:*
+
+- 250g batata doce cozida/grelhada;
+- 1 tomate;
+- sal rosa do Himalaia.
+
+
+*Prato principal:*
+
+- 3 ovos mexidos;
+- 50g queijo branco;
+- 1 torrada pão integral 15 grãos;
+- porção média de couve crua;
+- azeite;
+- sal rosa do Himalaia;
+- pimenta calabresa.
+
+
+
+### 14/05/2019 - Terça-feira
+
+#### Pré-almoço - 07:40
+
+- **Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.**
+- 1 xícara de café c/ adoçante sacarina

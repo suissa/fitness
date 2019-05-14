@@ -380,8 +380,20 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 - 3x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-***Etapa finalizada às 09:40***🔚
+***Etapa finalizada às 08:50***🔚
 
+
+> **prancha**💘
+
+🔛***Etapa iniciada às 09:00***
+
+- 3:00 min (reta parada)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 1:00 min (reta com 15 elevações de cada perna)🆕 
+- 1:00 min (reta com 15 elevações de cada perna)🆕 
+
+***Etapa finalizada às 09:30***🔚
 
 
 

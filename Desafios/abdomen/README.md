@@ -282,7 +282,7 @@ Vamo q vamo!!!
 ### 13/05/2019 - Segunda-feira
 
 
-Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a todo o resto.
+Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação a todo o resto.
 
 > **fortalecimento lombar** 💪🙏
 
@@ -362,7 +362,31 @@ Sempre iniciarei meus dias com fortalecimento lombar para que de sustentação a
 #### Total PRANCHA: **28min** de prancha🔥🏆
 #### Total ABDOMINAIS: 500🔥💪
 
+
+### 14/05/2019 - Terça-feira
+
+Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação a todo o resto.
+
+> Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
+> 1 xícara de café c/ adoçante sacarina
+
+
+> **fortalecimento lombar** 💪🙏
+
+🔛***Etapa iniciada às 09:10***
+
+- 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
+- 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
+- 3x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
+- 3x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
+
+***Etapa finalizada às 09:40***🔚
+
 <hr>
+
+
+
+
 
 ## Explicação 
 

@@ -220,8 +220,8 @@ Vamo q vamo!!!
 
 > **abdominais**🙏
 
-- 🌟**100 abdominais (lateral direita)**
-- 🌟**100 abdominais (lateral esquerda)**
+- 🌟**100x (lateral direita)**
+- 🌟**100x (lateral esquerda)**
 
 > **prancha**💘
 
@@ -255,9 +255,9 @@ Vamo q vamo!!!
 
 > **abdominais**🙏
 
-- 🌟**100 abdominais (lateral esquerda)**
-- 🌟**100 abdominais (lateral direita)**
-- 🌟**5x 20 abdominais c/ 8Kg (mov completo)**💪
+- 🌟**100x (lateral esquerda)**
+- 🌟**100x (lateral direita)**
+- 🌟**5x 20x c/ 8Kg (mov completo)**💪
 
 
 > **prancha**💘
@@ -351,11 +351,11 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 🔛***Etapa iniciada às 18:40***
 
-- 🌟**5x 30 abdominais c/ 8Kg (mov completo)**💪🏆
-- 🌟**100 abdominais (lateral direita)**
-- 🌟**100 abdominais (lateral esquerda)**
-- 🌟**75 abdominais c/ 8Kg (lateral direita)**💪
-- 🌟**75 abdominais c/ 8Kg (lateral esquerda)**💪
+- 🌟**5x 30x c/ 8Kg (mov completo)**💪🏆
+- 🌟**100x (lateral direita)**
+- 🌟**100x (lateral esquerda)**
+- 🌟**75x c/ 8Kg (lateral direita)**💪
+- 🌟**75x c/ 8Kg (lateral esquerda)**💪
 
 ***Etapa finalizada às 19:48***🔚
 
@@ -409,8 +409,18 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 12:30***🔚
 
 
-#### Total PRANCHA: **19:40min** de prancha🔥🏆
-#### Total ABDOMINAIS: 0
+> **abdominais**🙏
+
+🔛***Etapa iniciada às 17:00***
+
+- 60x 8Kg (mov. completo)
+- 40x 8Kg (mov. completo)
+- 40x 8Kg (mov. completo)
+
+***Etapa finalizada às ***🔚
+
+#### Total PRANCHA: **21min** de prancha🔥🏆
+#### Total ABDOMINAIS: 140
 
 
 

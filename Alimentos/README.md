@@ -87,3 +87,9 @@
 - alface verde (porção média)
 - 200g de batata doce cozida
 - 200ml suco de couve com genbibre e limao
+
+
+#### Tarde - 16:50
+
+- 1 xícara de café c/ adoçante sacarina
+

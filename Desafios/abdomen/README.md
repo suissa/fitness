@@ -396,9 +396,16 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 ***Etapa finalizada às 09:30***🔚
 
 
+🔛***Etapa iniciada às 11:00***
 
+Gostei desse modo, pega bem os oblíquos:
 
+![](https://i.imgur.com/4AitID4.jpg)
 
+- 6:40min => 10x cada lado segurando 20s (lateral com torção)🆕
+- 5:00min => 5x cada lado segurando 30s (lateral com torção)🆕
+
+***Etapa finalizada às 12:10***🔚
 
 
 <hr>

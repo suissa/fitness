@@ -75,3 +75,7 @@
 - **Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.**
 - 1 xícara de café c/ adoçante sacarina
 - 1 xícara de chá (alecrim, camomila, chá branco) c/ adoçante sacarina
+- 10:40: 1 copo 200ml de energético
+  - valor energético: 59kcal/250Kl
+  - carboidrato: 15g;
+  - sódio: 25mg

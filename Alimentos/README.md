@@ -127,3 +127,5 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
   - valor energético: 59kcal/250Kl
   - carboidrato: 15g;
   - sódio: 25mg
+- 11:22: 1 xícara de café c/ adoçante sacarina;
+- 11:54: 1 xícara de café c/ adoçante sacarina;

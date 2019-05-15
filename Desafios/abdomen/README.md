@@ -476,7 +476,16 @@ Gostei desse modo, pega bem os oblíquos:
 - 🌟**12:00min => 12x cada lado segurando 30s (lateral com torção)**🆕💪🏆
 - 2:00 min (reta parada)
 
-***Etapa finalizada às 10:43***🔚
+***Etapa finalizada às 11:30***🔚
+
+> **fortalecimento lombar** 💪🙏
+
+🔛***Etapa iniciada às 11:50***
+
+- 5x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
+- 4x de 20 repetições com 8kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
+
+***Etapa finalizada às 12:15***🔚
 
 
 #### Total PRANCHA: **21min**

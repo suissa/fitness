@@ -33,6 +33,9 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 > Total: **11 min** (reta) 🔚👍
 
 <hr>
+<br>
+<br>
+
 
 ### 28/04/2019 - Domingo-feira
 
@@ -64,6 +67,9 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 #### Total: **9:00 min** 🔚👎
 
 <hr>
+<br>
+<br>
+
 
 ### 30/04/2019 - Terça-feira
 
@@ -104,6 +110,9 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 
 
 <hr>
+<br>
+<br>
+
 
 ### 02/05/2019 - Quinta-feira
 
@@ -172,6 +181,9 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 <hr>
 
 
+<br>
+<br>
+
 ### 10/05/2019 - Sexta-feira
 
 Vamo q vamo!!!
@@ -204,6 +216,9 @@ Vamo q vamo!!!
 
 <hr>
 
+
+<br>
+<br>
 
 ### 11/05/2019 - Sábado
 
@@ -272,12 +287,18 @@ Vamo q vamo!!!
 
 <hr>
 
+<br>
+<br>
+
 ### 12/05/2019 - DOMINGO :trollface:
 
 #### DESCANSO TOTAL :trollface:
 
 <hr>
 
+
+<br>
+<br>
 
 ### 13/05/2019 - Segunda-feira
 
@@ -368,6 +389,10 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 #### Total ABDOMINAIS: 500🔥💪
 
 
+<hr>
+<br>
+<br>
+
 ### 14/05/2019 - Terça-feira
 
 Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação a todo o resto.
@@ -451,6 +476,9 @@ Gostei desse modo, pega bem os oblíquos:
 #### Total PRANCHA: 31min ✨🔥💪🏆
 #### Total ABDOMINAIS: 400 ⁉️😢
 
+<hr>
+<br>
+<br>
 
 ### 14/05/2019 - Quarta-feira
 

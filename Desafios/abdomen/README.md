@@ -510,6 +510,13 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 19:20***🔚
 
 
+🔛***Etapa iniciada às 19:40***
+
+![PAPAUM esse segundo dia](https://github.com/suissa/fitness/blob/master/Treino/App%20-%20Barriga%20Tanquinho/dia-02.jpg?raw=true)
+
+***Etapa finalizada às 19:50***🔚
+
+
 #### Total PRANCHA: 21min
 #### Total ABDOMINAIS: 600 🔥💪🏆
 

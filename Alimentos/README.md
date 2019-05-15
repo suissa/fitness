@@ -85,21 +85,27 @@
 
 ##### Almoço - 12:30
 
-- 200g de peito de frango grelhado
-- alface verde (porção média)
-- 200g de batata doce cozida
-- 200ml suco de couve com genbibre e limao
+- 200g de peito de frango grelhado;
+- alface verde (porção média);
+- 200g de batata doce cozida;
+- 200ml suco de couve com genbibre e limao.
 
 
 #### Tarde
 
-- 16:50: 1 xícara de café c/ adoçante sacarina
-- 17:50: 300g de carne vermelha de churrasco + pequeno porção de tomate
-- 18:00: 400ml suco de couve com genbibre e limao
+- 16:50: 1 xícara de café c/ adoçante sacarina;
+- 17:50: 300g de carne vermelha de churrasco + pequeno porção de tomate;
+- 18:00: 400ml suco de couve com genbibre e limao.
 
 #### Noite
 
 Sei que não deveria tomar café a noite mas era para matar a garrafa  😝 
 
 - 20:30: 1 xícara de café c/ adoçante sacarina
+
+##### Jantar - 22:00
+
+- 3 ovos cozidos;
+- 1/2 abacate médio como molho salgado com temperos e limão.
+- sobremesa: 1 iogurte natural desnatado + 2 colheres de aveia + canela
 

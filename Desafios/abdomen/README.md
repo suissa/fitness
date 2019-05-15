@@ -413,7 +413,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 🔛***Etapa iniciada às 17:00***
 
-- **🌟60x 8Kg (mov. completo)**🏆
+- 🌟**60x 8Kg (mov. completo)**🏆
 - 40x 8Kg (mov. completo)
 - 40x 8Kg (mov. completo)
 
@@ -423,7 +423,7 @@ Gostei desse modo, pega bem os oblíquos:
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
-- **🌟80x 8Kg (mov. completo)**🏆
+- 🌟**80x 8Kg (mov. completo)**🏆
 - 40x 8Kg (mov. completo)
 
 ***Etapa finalizada às 20:00***🔚
@@ -443,7 +443,7 @@ Gostei desse modo, pega bem os oblíquos:
 > Deveria ter feito até as 22 para finalziar 500 abdominais, FUI BURRO!
 
 
-#### Total PRANCHA: **31min**✨🔥🏆💪
+#### Total PRANCHA: **31min**✨🔥💪🏆
 #### Total ABDOMINAIS: 400⁉️😢
 
 
@@ -463,6 +463,25 @@ Gostei desse modo, pega bem os oblíquos:
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
 ***Etapa finalizada às 08:40***🔚
+
+> **prancha**💘
+
+*ps: tô sem café!!!* 
+
+🔛***Etapa iniciada às 08:50***
+
+- 🌟**4:00 min (reta parada)**
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 🌟**12:00min => 12x cada lado segurando 30s (lateral com torção)**🆕💪🏆
+- 2:00 min (reta parada)
+
+***Etapa finalizada às 10:43***🔚
+
+
+#### Total PRANCHA: **21min**
+#### Total ABDOMINAIS: 
+
 
 
 <hr>

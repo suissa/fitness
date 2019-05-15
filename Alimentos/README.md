@@ -129,3 +129,10 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
   - sódio: 25mg
 - 11:22: 1 xícara de café c/ adoçante sacarina;
 - 11:54: 1 xícara de café c/ adoçante sacarina;
+
+##### Almoço - 12:20
+
+- 200g de batata doce cozida;
+- porção média de couve crua;
+- sal rosa do Himalaia.
+

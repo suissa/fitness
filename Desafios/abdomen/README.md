@@ -493,12 +493,21 @@ Gostei desse modo, pega bem os oblíquos:
 🔛***Etapa iniciada às 17:40***
 
 - 🌟**100x 8Kg (mov. completo)**✨💪🏆
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 80x 8Kg (mov. completo)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 🌟**70x 8Kg (mov. curto sem deitar)**💪
+- 50x 8Kg (mov. curto sem deitar)
+
+> ***Prefiri fazer o de mov. curto sem deitar pois sinto BEM MAIS o abdômen!***
 
 ***Etapa finalizada às ***🔚
 
 
 #### Total PRANCHA: **21min**
-#### Total ABDOMINAIS: 
+#### Total ABDOMINAIS: 500
 
 
 

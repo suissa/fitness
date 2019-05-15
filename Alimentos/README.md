@@ -144,5 +144,7 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 1 copo 200ml Suco 0g carb;
 - 250g carne moída
 - 1 colher de aveia
-- nao ei qnt de queijo branco
+- nao sei qnt de queijo branco
 - 16:35: 1 xícara de café c/ adoçante sacarina;
+- 18:13: 1 mini ameixa
+- 18:50: 1 mini ameixa

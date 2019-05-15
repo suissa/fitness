@@ -70,7 +70,9 @@
 
 ### 14/05/2019 - Terça-feira
 
-#### Pré-almoço - 07:40
+#### Manhã
+
+##### Café da Manhã - 07:40
 
 - **Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.**
 - 1 xícara de café c/ adoçante sacarina
@@ -81,7 +83,7 @@
   - sódio: 25mg
 
 
-#### Almoço - 12:30
+##### Almoço - 12:30
 
 - 200g de peito de frango grelhado
 - alface verde (porção média)
@@ -89,10 +91,15 @@
 - 200ml suco de couve com genbibre e limao
 
 
-#### Tarde - 16:50
+#### Tarde
 
 - 16:50: 1 xícara de café c/ adoçante sacarina
 - 17:50: 300g de carne vermelha de churrasco + pequeno porção de tomate
 - 18:00: 400ml suco de couve com genbibre e limao
 
+#### Noite
+
+Sei que não deveria tomar café a noite mas era para matar a garrafa  😝 
+
+- 20:30: 1 xícara de café c/ adoçante sacarina
 

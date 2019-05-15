@@ -387,7 +387,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 🔛***Etapa iniciada às 09:00***
 
-- 3:00 min (reta parada)
+- 🌟**3:00 min (reta parada)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 - 1:00 min (reta com 15 elevações de cada perna)🆕 
@@ -417,7 +417,7 @@ Gostei desse modo, pega bem os oblíquos:
 - 40x 8Kg (mov. completo)
 - 40x 8Kg (mov. completo)
 
-> Hiato pq ta rolando xurras aqui em casa
+> Hiato pq ta rolando *churras* aqui em casa
 
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
@@ -428,7 +428,22 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 20:00***🔚
 
-#### Total PRANCHA: **21min** de prancha🔥🏆
+
+> **prancha**💘
+
+🔛***Etapa iniciada às 20:45***
+
+- 2:00 min (reta parada)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 5:00min => 5x cada lado segurando 30s (lateral com torção)🆕💪
+
+***Etapa finalizada às 21:40***🔚
+
+> Deveria ter feito até as 22 para finalziar 500 abdominais, FUI BURRO!
+
+
+#### Total PRANCHA: **31min**✨🔥🏆💪
 #### Total ABDOMINAIS: 400⁉️😢
 
 

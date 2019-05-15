@@ -359,6 +359,11 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 ***Etapa finalizada às 19:48***🔚
 
+
+> 🆕 ***Comecei a usar um APP pra ajudar a queimar a gordura mais rápido!***
+
+![Primeiro dia](https://github.com/suissa/fitness/blob/master/Treino/App%20-%20Barriga%20Tanquinho/dia-01.jpg?raw=true)
+
 #### Total PRANCHA: 28min 🔥🏆
 #### Total ABDOMINAIS: 500🔥💪
 

@@ -136,3 +136,13 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - porção média de couve crua;
 - sal rosa do Himalaia.
 
+
+#### Tarde
+
+##### Lanche - 16:00
+
+- 1 copo 200ml Suco 0g carb;
+- 250g carne moída
+- 1 colher de aveia
+- nao ei qnt de queijo branco
+- 16:35: 1 xícara de café c/ adoçante sacarina;

@@ -488,6 +488,15 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 12:15***🔚
 
 
+> **abdominais**🙏
+
+🔛***Etapa iniciada às 17:40***
+
+- 🌟**100x 8Kg (mov. completo)**✨💪🏆
+
+***Etapa finalizada às ***🔚
+
+
 #### Total PRANCHA: **21min**
 #### Total ABDOMINAIS: 
 

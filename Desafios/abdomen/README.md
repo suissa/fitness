@@ -359,7 +359,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 ***Etapa finalizada às 19:48***🔚
 
-#### Total PRANCHA: **28min**🔥🏆
+#### Total PRANCHA: 28min 🔥🏆
 #### Total ABDOMINAIS: 500🔥💪
 
 
@@ -443,8 +443,8 @@ Gostei desse modo, pega bem os oblíquos:
 > Deveria ter feito até as 22 para finalziar 500 abdominais, FUI BURRO!
 
 
-#### Total PRANCHA: **31min**✨🔥💪🏆
-#### Total ABDOMINAIS: 400⁉️😢
+#### Total PRANCHA: 31min ✨🔥💪🏆
+#### Total ABDOMINAIS: 400 ⁉️😢
 
 
 ### 14/05/2019 - Quarta-feira
@@ -505,11 +505,13 @@ Gostei desse modo, pega bem os oblíquos:
 
 > ***Prefiri fazer o de mov. curto sem deitar pois sinto BEM MAIS o abdômen!***
 
+> **Lembrete**: amanhã fazer repetiçõe em pé p/ os oblíquos!
+
 ***Etapa finalizada às 19:20***🔚
 
 
-#### Total PRANCHA: **21min**
-#### Total ABDOMINAIS: 600
+#### Total PRANCHA: 21min
+#### Total ABDOMINAIS: 600 🔥💪🏆
 
 
 

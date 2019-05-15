@@ -515,6 +515,8 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 19:20***🔚
 
 
+> **app - Barriga tanquinho**
+
 🔛***Etapa iniciada às 19:40***
 
 ![PAPAUM esse segundo dia](https://github.com/suissa/fitness/blob/master/Treino/App%20-%20Barriga%20Tanquinho/dia-02.jpg?raw=true)
@@ -522,7 +524,22 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 19:50***🔚
 
 
-#### Total PRANCHA: 21min
+
+> **prancha**💘
+
+🔛***Etapa iniciada às 20:20***
+
+- 1:00 min (reta com 15 elevações de cada perna)
+- 2:00 min (reta parada)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+
+***Etapa finalizada às 20:50***🔚
+
+
+#### Total PRANCHA: 30min 🔥💪
 #### Total ABDOMINAIS: 600 🔥💪🏆
 
 

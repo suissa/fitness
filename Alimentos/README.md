@@ -109,3 +109,21 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 1/2 abacate médio como molho salgado com temperos e limão.
 - sobremesa: 1 iogurte natural desnatado + 2 colheres de aveia + canela
 
+
+### 14/05/2019 - Terça-feira
+
+#### Manhã
+
+##### Café da Manhã - 07:40
+
+- 1 xícara de Capuccino Classic 
+  - 87kcal/364Kj
+  - açucares: 14g (5%)
+  - proteínas: 2.2g (3%)
+  - gorduras totais: 2.2g (4%)
+    - saturadas: 1.6g (7%)
+  - sódio: 93mg (4%)
+- 08:25: 1 copo 200ml de energético
+  - valor energético: 59kcal/250Kl
+  - carboidrato: 15g;
+  - sódio: 25mg

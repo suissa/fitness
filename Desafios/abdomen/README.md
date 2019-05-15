@@ -447,6 +447,23 @@ Gostei desse modo, pega bem os oblíquos:
 #### Total ABDOMINAIS: 400⁉️😢
 
 
+### 14/05/2019 - Quarta-feira
+
+
+> Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
+> 1 xícara de cappucino pronto.
+
+> **fortalecimento lombar** 💪🙏
+
+🔛***Etapa iniciada às 08:00***
+
+- 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
+- 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
+- 4x de 20 repetições com 8kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
+- 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
+
+***Etapa finalizada às 08:40***🔚
+
 
 <hr>
 

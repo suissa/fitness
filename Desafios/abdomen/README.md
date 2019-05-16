@@ -141,7 +141,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 - + 150 abdominais mov. completo 
 - + 100 abdominais mov. completo c/ pernas retas
 
-#### Total: **9min**🔚👎
+#### Total: **9min** 🔚👎
 
 
 <hr>
@@ -166,7 +166,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 - 2:00 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-> **abdominais**🙏
+> **abdominais** 🙏
 
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
@@ -188,7 +188,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 
 Vamo q vamo!!!
 
-> **prancha**💘
+> **prancha** 💘
 
 *Manhã:*
 - 🌟**4:00 min (reta)**
@@ -233,12 +233,12 @@ Vamo q vamo!!!
 
 - 3 séries de fortalecimento lombar com 10 repetições
 
-> **abdominais**🙏
+> **abdominais** 🙏
 
 - 🌟**100x (lateral direita)**
 - 🌟**100x (lateral esquerda)**
 
-> **prancha**💘
+> **prancha** 💘
 
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
@@ -251,9 +251,9 @@ Vamo q vamo!!!
 - 4x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-> ⚠️*Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
+> ⚠️ *Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
 
-> **prancha**💘
+> **prancha** 💘
 
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
@@ -262,24 +262,24 @@ Vamo q vamo!!!
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-***Etapa finalizada às 13:22***🔚
+***Etapa finalizada às 13:22*** 🔚
 
 <hr>
 
 🔛***Etapa iniciada às 15:50***
 
-> **abdominais**🙏
+> **abdominais** 🙏
 
 - 🌟**100x (lateral esquerda)**
 - 🌟**100x (lateral direita)**
-- 🌟**5x 20x c/ 8Kg (mov completo)**💪
+- 🌟**5x 20x c/ 8Kg (mov completo)** 💪
 
 
-> **prancha**💘
+> **prancha** 💘
 
 - 2:00 min (reta)
 
-***Etapa finalizada às 18:00***🔚
+***Etapa finalizada às 18:00*** 🔚
 
 
 #### Total: **21min** de prancha🔥
@@ -314,35 +314,35 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 - 3x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 3x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-***Etapa finalizada às 09:40***🔚
+***Etapa finalizada às 09:40*** 🔚
 
 > Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
 
 🔛***Etapa iniciada às 10:10***
 
-> **prancha**💘
+> **prancha** 💘
 
 - 🌟**3:00 min (reta)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- 1:00 min (reta com 15 elevações de cada perna)🆕
-- 1:00 min (reta com 15 elevações de cada perna)🆕 
+- 1:00 min (reta com 15 elevações de cada perna) 🆕
+- 1:00 min (reta com 15 elevações de cada perna) 🆕 
 
 🆕 ***NOVO TIPO DE PRANCHA: Prancha lateral com torção***
 
 ![](https://i.imgur.com/4AitID4.jpg)
 
-- 6:40min => 10x cada lado segurando 20s (lateral com torção)🆕
+- 6:40min => 10x cada lado segurando 20s (lateral com torção) 🆕
   - 1 lado = 10x20s = 200s = 3:20min
 
 
-- 1:00 min (reta movimentando p/ frente e trás)🆕
+- 1:00 min (reta movimentando p/ frente e trás) 🆕
 - 2:00 min (reta parada)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 - 2:20 min (reta parada)
 
-***Etapa finalizada às 12:40***🔚
+***Etapa finalizada às 12:40*** 🔚
 
 
 
@@ -353,32 +353,32 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 - 4x de 30 repetições sem peso [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-***Etapa finalizada às 18:00***🔚
+***Etapa finalizada às 18:00*** 🔚
 
 
-> **prancha**💘
+> **prancha** 💘
 
 🔛***Etapa iniciada às 18:10***
 
 - 2:00 min (reta parada)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- 1:00 min (reta movimentando p/ frente e trás)🆕
+- 1:00 min (reta movimentando p/ frente e trás) 🆕
 
-***Etapa finalizada às 18:29***🔚
+***Etapa finalizada às 18:29*** 🔚
 
 
-> **abdominais**🙏
+> **abdominais** 🙏
 
 🔛***Etapa iniciada às 18:40***
 
-- 🌟**5x 30x c/ 8Kg (mov completo)**💪
+- 🌟**5x 30x c/ 8Kg (mov completo)** 💪
 - 🌟**100x (lateral direita)**
 - 🌟**100x (lateral esquerda)**
-- 🌟**75x c/ 8Kg (lateral direita)**💪🏆
-- 🌟**75x c/ 8Kg (lateral esquerda)**💪🏆
+- 🌟**75x c/ 8Kg (lateral direita)** 💪🏆
+- 🌟**75x c/ 8Kg (lateral esquerda)** 💪🏆
 
-***Etapa finalizada às 19:48***🔚
+***Etapa finalizada às 19:48*** 🔚
 
 
 > 🆕 ***Comecei a usar um APP pra ajudar a queimar a gordura mais rápido!***
@@ -410,20 +410,20 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 - 3x de 30 repetições com 6kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-***Etapa finalizada às 08:50***🔚
+***Etapa finalizada às 08:50*** 🔚
 
 
-> **prancha**💘
+> **prancha** 💘
 
 🔛***Etapa iniciada às 09:00***
 
 - 🌟**3:00 min (reta parada)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- 1:00 min (reta com 15 elevações de cada perna)🆕 
-- 1:00 min (reta com 15 elevações de cada perna)🆕 
+- 1:00 min (reta com 15 elevações de cada perna) 🆕 
+- 1:00 min (reta com 15 elevações de cada perna) 🆕 
 
-***Etapa finalizada às 09:30***🔚
+***Etapa finalizada às 09:30*** 🔚
 
 
 🔛***Etapa iniciada às 11:00***
@@ -432,18 +432,18 @@ Gostei desse modo, pega bem os oblíquos:
 
 ![](https://i.imgur.com/4AitID4.jpg)
 
-- 6:40min => 10x cada lado segurando 20s (lateral com torção)🆕
-- 5:00min => 5x cada lado segurando 30s (lateral com torção)🆕💪
-- 1:20 min (reta com 15 elevações de cada perna)🆕 
+- 6:40min => 10x cada lado segurando 20s (lateral com torção) 🆕
+- 5:00min => 5x cada lado segurando 30s (lateral com torção) 🆕💪
+- 1:20 min (reta com 15 elevações de cada perna) 🆕 
 
-***Etapa finalizada às 12:30***🔚
+***Etapa finalizada às 12:30*** 🔚
 
 
-> **abdominais**🙏
+> **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:00***
 
-- 🌟**60x 8Kg (mov. completo)**🏆
+- 🌟**60x 8Kg (mov. completo)** 🏆
 - 40x 8Kg (mov. completo)
 - 40x 8Kg (mov. completo)
 
@@ -453,22 +453,22 @@ Gostei desse modo, pega bem os oblíquos:
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
-- 🌟**80x 8Kg (mov. completo)**🏆
+- 🌟**80x 8Kg (mov. completo)** 🏆
 - 40x 8Kg (mov. completo)
 
-***Etapa finalizada às 20:00***🔚
+***Etapa finalizada às 20:00*** 🔚
 
 
-> **prancha**💘
+> **prancha** 💘
 
 🔛***Etapa iniciada às 20:45***
 
 - 2:00 min (reta parada)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- 5:00min => 5x cada lado segurando 30s (lateral com torção)🆕💪
+- 5:00min => 5x cada lado segurando 30s (lateral com torção) 🆕💪
 
-***Etapa finalizada às 21:40***🔚
+***Etapa finalizada às 21:40*** 🔚
 
 > Deveria ter feito até as 22 para finalziar 500 abdominais, FUI BURRO!
 
@@ -495,9 +495,9 @@ Gostei desse modo, pega bem os oblíquos:
 - 4x de 20 repetições com 8kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 - 4x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 
-***Etapa finalizada às 08:40***🔚
+***Etapa finalizada às 08:40*** 🔚
 
-> **prancha**💘
+> **prancha** 💘
 
 *ps: tô sem café!!!* 
 
@@ -509,7 +509,7 @@ Gostei desse modo, pega bem os oblíquos:
 - 🌟**12:00min => 12x cada lado segurando 30s (lateral com torção)**🆕💪🏆
 - 2:00 min (reta parada)
 
-***Etapa finalizada às 11:30***🔚
+***Etapa finalizada às 11:30*** 🔚
 
 > **fortalecimento lombar** 💪🙏
 
@@ -518,10 +518,10 @@ Gostei desse modo, pega bem os oblíquos:
 - 5x de 30 segundos [sentado segurando 4kg em cada mão](https://youtu.be/bvF1JSH8llU?t=235)
 - 4x de 20 repetições com 8kg [abdominal invertida](https://www.youtube.com/embed/bvF1JSH8llU?start=133)
 
-***Etapa finalizada às 12:15***🔚
+***Etapa finalizada às 12:15*** 🔚
 
 
-> **abdominais**🙏
+> **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:40***
 
@@ -531,7 +531,7 @@ Gostei desse modo, pega bem os oblíquos:
 - 80x 8Kg (mov. completo)
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
-- 🌟**70x 8Kg (mov. curto sem deitar)**💪
+- 🌟**70x 8Kg (mov. curto sem deitar)** 💪
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
@@ -540,7 +540,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 > **Lembrete**: amanhã fazer repetiçõe em pé p/ os oblíquos!
 
-***Etapa finalizada às 19:20***🔚
+***Etapa finalizada às 19:20*** 🔚
 
 
 > **app - Barriga tanquinho**
@@ -549,11 +549,11 @@ Gostei desse modo, pega bem os oblíquos:
 
 ![PAPAUM esse segundo dia](https://github.com/suissa/fitness/blob/master/Treino/App%20-%20Barriga%20Tanquinho/dia-02.jpg?raw=true)
 
-***Etapa finalizada às 19:50***🔚
+***Etapa finalizada às 19:50*** 🔚
 
 
 
-> **prancha**💘
+> **prancha** 💘
 
 🔛***Etapa iniciada às 20:20***
 
@@ -564,11 +564,11 @@ Gostei desse modo, pega bem os oblíquos:
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 
-***Etapa finalizada às 20:50***🔚
+***Etapa finalizada às 20:50*** 🔚
 
 
 #### Total PRANCHA: 30min 🔥💪
-#### Total ABDOMINAIS: 600 🔥💪🏆
+#### Total ABDOMINAIS: 600 🔥💪
 
 <hr>
 <br>
@@ -587,10 +587,10 @@ Gostei desse modo, pega bem os oblíquos:
 
 - 6x de 30 segundos (segurando as pernas em 90 graus)
 
-***Etapa finalizada às 08:35***🔚
+***Etapa finalizada às 08:35*** 🔚
 
 
-> **prancha**💘
+> **prancha** 💘
 
 🔛***Etapa iniciada às 08:40***
 
@@ -599,9 +599,9 @@ Gostei desse modo, pega bem os oblíquos:
 - 1:30 min (lateral direita)
 - 2:00 min (reta)
 - 1:00 min (reta com 15 elevações de cada perna)
-- **10:00min => 10x cada lado segurando 30s (lateral com torção)**💪
+- **10:00min => 10x cada lado segurando 30s (lateral com torção)** 💪
 
-***Etapa finalizada às 11:13***🔚
+***Etapa finalizada às 11:13*** 🔚
 
 
 > **app - Barriga tanquinho**
@@ -612,10 +612,10 @@ Gostei desse modo, pega bem os oblíquos:
 
 + 1min prancha
 
-***Etapa finalizada às 12:00***🔚
+***Etapa finalizada às 12:00*** 🔚
 
 
-> **abdominais**🙏
+> **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:50***
 
@@ -625,20 +625,19 @@ Gostei desse modo, pega bem os oblíquos:
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem deitar)
 
-= 30s0
+***Etapa finalizada às 20:10*** 🔚
 
 
-
-
-500
-
-***Etapa finalizada às 20:00***🔚
-
-
-
-#### Total PRANCHA: 21min
-#### Total ABDOMINAIS: 
+#### Total PRANCHA: 21min - não finalizado ainda
+#### Total ABDOMINAIS: 650 🔥💪🏆
 
 <hr>
 

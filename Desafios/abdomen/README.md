@@ -576,6 +576,8 @@ Gostei desse modo, pega bem os oblíquos:
 
 ### 14/05/2019 - Quarta-feira
 
+**Devido ao meu problema no punho/pulso eu não estou fazendo nenhum exercício que necessite dele!**
+
 > Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
 > 3 xícaras de café c/ adoçante sacarina
 
@@ -611,6 +613,28 @@ Gostei desse modo, pega bem os oblíquos:
 + 1min prancha
 
 ***Etapa finalizada às 12:00***🔚
+
+
+> **abdominais**🙏
+
+🔛***Etapa iniciada às 17:50***
+
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem deitar)
+
+= 30s0
+
+
+
+
+500
+
+***Etapa finalizada às 20:00***🔚
+
 
 
 #### Total PRANCHA: 21min

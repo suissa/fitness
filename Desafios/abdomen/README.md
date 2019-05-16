@@ -480,7 +480,7 @@ Gostei desse modo, pega bem os oblíquos:
 <br>
 <br>
 
-### 14/05/2019 - Quarta-feira
+### 15/05/2019 - Quarta-feira
 
 
 > Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
@@ -574,7 +574,7 @@ Gostei desse modo, pega bem os oblíquos:
 <br>
 <br>
 
-### 14/05/2019 - Quarta-feira
+### 16/05/2019 - Quinta-feira
 
 **Devido ao meu problema no punho/pulso eu não estou fazendo nenhum exercício que necessite dele!**
 

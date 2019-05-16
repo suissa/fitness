@@ -168,3 +168,4 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 
 - 07:40: 1 xícara de café c/ adoçante sacarina;
 - 08:00: 2 bananas pequenas com canela + 1 colher de aveia
+- 08:13: 1 xícara de café c/ adoçante sacarina;

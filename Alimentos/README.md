@@ -67,6 +67,9 @@
 - pimenta calabresa.
 
 
+<hr>
+<br>
+<br>
 
 ### 14/05/2019 - Terça-feira
 
@@ -109,6 +112,9 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 1/2 abacate médio como molho salgado com temperos e limão.
 - sobremesa: 1 iogurte natural desnatado + 2 colheres de aveia + canela
 
+<hr>
+<br>
+<br>
 
 ### 14/05/2019 - Terça-feira
 
@@ -159,6 +165,9 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 100g de batata dce cozida.
 - 1/2 abacate com 1 colher de aveia
 
+<hr>
+<br>
+<br>
 
 ### 14/05/2019 - Terça-feira
 
@@ -169,3 +178,14 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 07:40: 1 xícara de café c/ adoçante sacarina;
 - 08:00: 2 bananas pequenas com canela + 1 colher de aveia
 - 08:13: 1 xícara de café c/ adoçante sacarina;
+
+#### Tarde
+
+##### Café da Tarde - 16:00
+
+- 16:00: 1 xícara de café c/ adoçante sacarina;
+- 2 fatias de pão integral 15 grãos;
+- 2 fatias de mortadela defumada;
+- 3 folhas de alface verde;
+- 16:20: 1 xícara de café c/ adoçante sacarina;
+- 16:30: 1 xícara de café c/ adoçante sacarina;

@@ -148,3 +148,23 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 16:35: 1 xícara de café c/ adoçante sacarina;
 - 18:13: 1 mini ameixa
 - 18:50: 1 mini ameixa
+
+#### Noite
+
+##### Janta
+
+- 2 fatias de pão integral 15 grãos;
+- 2 fatias de mortadela defumada;
+- 3 folhas de alface verde;
+- 100g de batata dce cozida.
+- 1/2 abacate com 1 colher de aveia
+
+
+### 14/05/2019 - Terça-feira
+
+#### Manhã
+
+##### Café da Manhã - 07:40
+
+- 07:40: 1 xícara de café c/ adoçante sacarina;
+- 08:00: 2 bananas pequenas com canela + 1 colher de aveia

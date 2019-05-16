@@ -570,10 +570,56 @@ Gostei desse modo, pega bem os oblíquos:
 #### Total PRANCHA: 30min 🔥💪
 #### Total ABDOMINAIS: 600 🔥💪🏆
 
+<hr>
+<br>
+<br>
 
+### 14/05/2019 - Quarta-feira
+
+> Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
+> 3 xícaras de café c/ adoçante sacarina
+
+> **fortalecimento lombar** 💪🙏
+
+🔛***Etapa iniciada às 08:30***
+
+- 6x de 30 segundos (segurando as pernas em 90 graus)
+
+***Etapa finalizada às 08:35***🔚
+
+
+> **prancha**💘
+
+🔛***Etapa iniciada às 08:40***
+
+- 🌟**4:00 min (reta)**
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 2:00 min (reta)
+- 1:00 min (reta com 15 elevações de cada perna)
+- **10:00min => 10x cada lado segurando 30s (lateral com torção)**💪
+
+***Etapa finalizada às 11:13***🔚
+
+
+> **app - Barriga tanquinho**
+
+🔛***Etapa iniciada às 11:50***
+
+> ESQUECI DE TIRAR A PORRA DO PRINT! Mas foram menos de 10 minutos em 15 exercícios!
+
++ 1min prancha
+
+***Etapa finalizada às 12:00***🔚
+
+
+#### Total PRANCHA: 21min
+#### Total ABDOMINAIS: 
 
 <hr>
 
+<br>
+<br>
 
 
 

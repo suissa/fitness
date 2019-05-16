@@ -633,7 +633,7 @@ Gostei desse modo, pega bem os oblíquos:
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (mov. curto sem deitar)
 
-***Etapa finalizada às 20:10*** 🔚
+***Etapa finalizada às 20:05*** 🔚
 
 
 #### Total PRANCHA: 21min - não finalizado ainda

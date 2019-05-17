@@ -166,7 +166,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 - 2:00 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
@@ -233,7 +233,7 @@ Vamo q vamo!!!
 
 - 3 séries de fortalecimento lombar com 10 repetições
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 - 🌟**100x (lateral direita)**
 - 🌟**100x (lateral esquerda)**
@@ -268,7 +268,7 @@ Vamo q vamo!!!
 
 🔛***Etapa iniciada às 15:50***
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 - 🌟**100x (lateral esquerda)**
 - 🌟**100x (lateral direita)**
@@ -368,7 +368,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 ***Etapa finalizada às 18:29*** 🔚
 
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 🔛***Etapa iniciada às 18:40***
 
@@ -439,7 +439,7 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 12:30*** 🔚
 
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:00***
 
@@ -521,7 +521,7 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 12:15*** 🔚
 
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:40***
 
@@ -618,7 +618,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 <hr>
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:50***
 
@@ -696,14 +696,14 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 <hr>
 
-> **abdominais** 🙏
+#### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:30***
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. curto sem deitar) 
 
-> dei uma pegada perrada com o pulso que foi de sair lágrima, mas fiz:
+> ***dei uma pegada perrada com o pulso que foi de sair lágrima, mas fiz:***
 
 - 50x 8Kg (mov. curto sem subir)
 

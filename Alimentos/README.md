@@ -227,7 +227,27 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 08:42: 1 xícara de café c/ adoçante sacarina;
 - 09:40: 1 xícara de café c/ adoçante sacarina;
 - 10:28: 1 xícara de café c/ adoçante sacarina;
+- 11:05: 1 xícara de café c/ adoçante sacarina;
+- 11:10: 1 xícara de café c/ adoçante sacarina;
+- 11:45: 1 mini ameixa;
+- 11:52: 1 xícara de café c/ adoçante sacarina;
 
+
+##### Almoço - 13:30
+
+- 290g de bisteca suína
+- 1 cebola roxa
+
+##### Sobremesa - 13:50
+
+- 1/2 abacate
+- 1 colher de linhaça
+- 1 colher de aveia
+
+
+#### Tarde
+
+- 15:00: 1 xícara de café c/ adoçante sacarina;
 
 
 

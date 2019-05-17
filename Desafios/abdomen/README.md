@@ -676,8 +676,13 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - **13:00min => 10x cada lado segurando 30s (lateral com torção)** 🆕💪🏆
 - 2:00 min (reta)
 - 2:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 2:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
 
-***Etapa finalizada às 10:20 com 23 minutos AO TOTAL*** 🔚
+***Etapa finalizada às 11:00 com 30 minutos AO TOTAL*** 🔚
 
 
 <hr>

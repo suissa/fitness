@@ -116,7 +116,7 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 <br>
 <br>
 
-### 14/05/2019 - Terça-feira
+### 15/05/2019 - Quarta-feira
 
 #### Manhã
 
@@ -169,7 +169,7 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 <br>
 <br>
 
-### 14/05/2019 - Terça-feira
+### 16/05/2019 - Quinta-feira
 
 #### Manhã
 
@@ -178,6 +178,13 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 07:40: 1 xícara de café c/ adoçante sacarina;
 - 08:00: 2 bananas pequenas com canela + 1 colher de aveia
 - 08:13: 1 xícara de café c/ adoçante sacarina;
+
+##### Almoço - 12:30
+
+- 250g de carne vermelha grelhada
+- 4 folhas de alface
+- 100g de queijo branco
+- 1 copo 200ml Suco 0g carb;
 
 #### Tarde
 
@@ -193,5 +200,12 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 17:10: 1 xícara de café c/ adoçante sacarina;
 - 17:40: 1 xícara de café c/ adoçante sacarina;
 - 18:44: 1 xícara de café c/ adoçante sacarina;
+
+#### Noite
+
 - 19:30: 1 mini ameixa;
 - 21:14: 1/2 abacate + 3 colheres de aveia;
+
+##### Jantar - 22:30
+
+- 22:30: 200g de frango grelhado com requeijão light + 2 ovos fritos

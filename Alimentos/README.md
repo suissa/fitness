@@ -257,6 +257,7 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
     - polióis: 4.9g
   - fibraa: 1.5g;
   - gorduras 3.5g;
+- 18:06: 1 xícara de café c/ adoçante sacarina;
 
 
 

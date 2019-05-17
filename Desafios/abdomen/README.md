@@ -702,16 +702,14 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. curto sem deitar) 
-
-> ***dei uma pegada perrada com o pulso que foi de sair lágrima, mas fiz:***
-
 - 50x 8Kg (mov. curto sem subir)
-
-
-<!-- 
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (mov. curto sem deitar)
+
+= 300
+
+<!-- 
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (mov. curto sem subir)

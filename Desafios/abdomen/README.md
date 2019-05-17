@@ -589,6 +589,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 08:35*** 🔚
 
+<hr>
 
 > **prancha** 💘
 
@@ -603,6 +604,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 11:13*** 🔚
 
+<hr>
 
 > **app - Barriga tanquinho**
 
@@ -614,6 +616,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 12:00*** 🔚
 
+<hr>
 
 > **abdominais** 🙏
 
@@ -635,19 +638,21 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 20:05*** 🔚
 
+
+<hr>
+
 > **prancha** 💘
 
 🔛***Etapa iniciada às 20:20***
 
 - 2:00 min (reta)
 - 5:00min => 10x cada lado segurando 30s (lateral com torção)
-
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 
-***Etapa finalizada às 21:20*** 🔚
+***Etapa finalizada às 21:10*** 🔚
 
-#### Total PRANCHA: 23min - não finalizado ainda
+#### Total PRANCHA: 30min 🔥💪
 #### Total ABDOMINAIS: 650 🔥💪🏆
 
 <hr>

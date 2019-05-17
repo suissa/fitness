@@ -209,3 +209,25 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 ##### Jantar - 22:30
 
 - 22:30: 200g de frango grelhado com requeijão light + 2 ovos fritos
+
+<hr>
+<br>
+<br>
+
+### 17/05/2019 - Sexta-feira
+
+#### Manhã
+
+##### Café da Manhã - 07:20
+
+- 07:20: 2 bananas pequenas com canela + 1 colher de aveia;
+- 07:30: 1 xícara de café c/ adoçante sacarina;
+- 07:40: 1 xícara de café c/ adoçante sacarina;
+- 07:45: 1 xícara de café c/ adoçante sacarina;
+- 08:42: 1 xícara de café c/ adoçante sacarina;
+- 09:40: 1 xícara de café c/ adoçante sacarina;
+- 10:28: 1 xícara de café c/ adoçante sacarina;
+
+
+
+

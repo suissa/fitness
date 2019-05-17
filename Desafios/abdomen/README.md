@@ -506,7 +506,7 @@ Gostei desse modo, pega bem os oblíquos:
 - 🌟**4:00 min (reta parada)**
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- 🌟**12:00min => 12x cada lado segurando 30s (lateral com torção)**🆕💪🏆
+- 🌟**12:00min => 12x cada lado segurando 30s (lateral com torção)** 🆕💪
 - 2:00 min (reta parada)
 
 ***Etapa finalizada às 11:30*** 🔚
@@ -654,6 +654,31 @@ Gostei desse modo, pega bem os oblíquos:
 
 #### Total PRANCHA: 30min 🔥💪
 #### Total ABDOMINAIS: 650 🔥💪🏆
+
+<hr>
+<br>
+<br>
+
+### 17/05/2019 - Sexta-feira
+
+Hoje já sinto um maior cansaço no abdômen e a lombar pegando mais que anteriormente, logo farei uma meta menor hoje para pelo menos 20 min de prancha ao total e pelo menos 400 abdominais com peso.
+
+Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de hoje
+
+> **prancha** 💘
+
+🔛***Etapa iniciada às 08:02***
+
+- 2:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 1:00 min (reta com 15 elevações de cada perna)
+- **13:00min => 10x cada lado segurando 30s (lateral com torção)** 🆕💪🏆
+- 2:00 min (reta)
+- 2:00 min (reta)
+
+***Etapa finalizada às 10:20 com 23 minutos AO TOTAL*** 🔚
+
 
 <hr>
 

@@ -248,6 +248,15 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 #### Tarde
 
 - 15:00: 1 xícara de café c/ adoçante sacarina;
+- 16:00: 2 bananas pequenas com canela + 1 colher de aveia;
+- 17:00: 1 xícara de café c/ adoçante sacarina;
+- 17:00: 1 barra VO2 - chocolate;
+  - energia: 122kcal/512kJ;
+  - proteínas: 8.6g;
+  - carbs: 14g;
+    - polióis: 4.9g
+  - fibraa: 1.5g;
+  - gorduras 3.5g;
 
 
 

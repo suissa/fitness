@@ -684,6 +684,45 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 ***Etapa finalizada às 11:00 com 30 minutos AO TOTAL*** 🔚
 
+<hr>
+
+> **app - Barriga tanquinho**
+
+🔛***Etapa iniciada às 16:30***
+
+![](https://i.imgur.com/7e5TsQM.jpg)
+
+***Etapa finalizada às 16:40*** 🔚
+
+<hr>
+
+> **abdominais** 🙏
+
+🔛***Etapa iniciada às 17:30***
+
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. curto sem deitar) 
+
+> dei uma pegada perrada com o pulso que foi de sair lágrima, mas fiz:
+
+- 50x 8Kg (mov. curto sem subir)
+
+
+<!-- 
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem deitar) -->
+
+***Etapa finalizada às *** 🔚
+
+
 
 <hr>
 

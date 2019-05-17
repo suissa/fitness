@@ -166,7 +166,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 - 2:00 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 - 100 abdominais (lateral esquerda)
 - 100 abdominais (lateral direita)
@@ -188,7 +188,7 @@ Graças a uma luxação no meu ombro direito fiquei sem fazer prancha até HOJE!
 
 Vamo q vamo!!!
 
-> **prancha** 💘
+### **prancha** 💘
 
 *Manhã:*
 - 🌟**4:00 min (reta)**
@@ -229,22 +229,22 @@ Vamo q vamo!!!
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 - 3 séries de fortalecimento lombar com 10 repetições
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 - 🌟**100x (lateral direita)**
 - 🌟**100x (lateral esquerda)**
 
-> **prancha** 💘
+### **prancha** 💘
 
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 - 6x de 30 segundos [segurando as pernas em 90 graus](https://www.instagram.com/p/BxPwMGBFy9W/)
 - 4x 30 segundos [superman](https://www.youtube.com/watch?v=-4jzbeVmi6Y&feature=youtu.be)
@@ -253,7 +253,7 @@ Vamo q vamo!!!
 
 > ⚠️ *Para primeira vez pode ser q eu tenha pegado um pouco pesado na abdominal invertida.*
 
-> **prancha** 💘
+### **prancha** 💘
 
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
@@ -268,14 +268,14 @@ Vamo q vamo!!!
 
 🔛***Etapa iniciada às 15:50***
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 - 🌟**100x (lateral esquerda)**
 - 🌟**100x (lateral direita)**
 - 🌟**5x 20x c/ 8Kg (mov completo)** 💪
 
 
-> **prancha** 💘
+### **prancha** 💘
 
 - 2:00 min (reta)
 
@@ -305,7 +305,7 @@ Vamo q vamo!!!
 
 Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação a todo o resto.
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 🔛***Etapa iniciada às 09:10***
 
@@ -320,7 +320,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 🔛***Etapa iniciada às 10:10***
 
-> **prancha** 💘
+### **prancha** 💘
 
 - 🌟**3:00 min (reta)**
 - 1:30 min (lateral esquerda)
@@ -346,7 +346,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 
 
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 🔛***Etapa iniciada às 17:30***
 
@@ -356,7 +356,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 ***Etapa finalizada às 18:00*** 🔚
 
 
-> **prancha** 💘
+### **prancha** 💘
 
 🔛***Etapa iniciada às 18:10***
 
@@ -368,7 +368,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 ***Etapa finalizada às 18:29*** 🔚
 
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 🔛***Etapa iniciada às 18:40***
 
@@ -401,7 +401,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 > 1 xícara de café c/ adoçante sacarina
 
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 🔛***Etapa iniciada às 08:00***
 
@@ -413,7 +413,7 @@ Sempre iniciarei meus dias com fortalecimento lombar para que dê sustentação 
 ***Etapa finalizada às 08:50*** 🔚
 
 
-> **prancha** 💘
+### **prancha** 💘
 
 🔛***Etapa iniciada às 09:00***
 
@@ -439,7 +439,7 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 12:30*** 🔚
 
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:00***
 
@@ -459,7 +459,7 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 20:00*** 🔚
 
 
-> **prancha** 💘
+### **prancha** 💘
 
 🔛***Etapa iniciada às 20:45***
 
@@ -486,7 +486,7 @@ Gostei desse modo, pega bem os oblíquos:
 > Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
 > 1 xícara de cappucino pronto.
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 🔛***Etapa iniciada às 08:00***
 
@@ -497,7 +497,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 08:40*** 🔚
 
-> **prancha** 💘
+### **prancha** 💘
 
 *ps: tô sem café!!!* 
 
@@ -511,7 +511,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 11:30*** 🔚
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 🔛***Etapa iniciada às 11:50***
 
@@ -521,7 +521,7 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 12:15*** 🔚
 
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:40***
 
@@ -543,7 +543,7 @@ Gostei desse modo, pega bem os oblíquos:
 ***Etapa finalizada às 19:20*** 🔚
 
 
-> **app - Barriga tanquinho**
+### **app - Barriga tanquinho**
 
 🔛***Etapa iniciada às 19:40***
 
@@ -553,7 +553,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 
 
-> **prancha** 💘
+### **prancha** 💘
 
 🔛***Etapa iniciada às 20:20***
 
@@ -581,7 +581,7 @@ Gostei desse modo, pega bem os oblíquos:
 > Café da manhã: 2 bananas pequenas, amassadas, com aveia e canela.
 > 3 xícaras de café c/ adoçante sacarina
 
-> **fortalecimento lombar** 💪🙏
+### **fortalecimento lombar** 💪🙏
 
 🔛***Etapa iniciada às 08:30***
 
@@ -591,7 +591,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 <hr>
 
-> **prancha** 💘
+### **prancha** 💘
 
 🔛***Etapa iniciada às 08:40***
 
@@ -606,7 +606,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 <hr>
 
-> **app - Barriga tanquinho**
+### **app - Barriga tanquinho**
 
 🔛***Etapa iniciada às 11:50***
 
@@ -618,7 +618,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 <hr>
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:50***
 
@@ -641,7 +641,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 <hr>
 
-> **prancha** 💘
+### **prancha** 💘
 
 🔛***Etapa iniciada às 20:20***
 
@@ -665,7 +665,7 @@ Hoje já sinto um maior cansaço no abdômen e a lombar pegando mais que anterio
 
 Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de hoje
 
-> **prancha** 💘
+### **prancha** 💘
 
 🔛***Etapa iniciada às 08:02***
 
@@ -686,7 +686,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 <hr>
 
-> **app - Barriga tanquinho**
+### **app - Barriga tanquinho**
 
 🔛***Etapa iniciada às 16:30***
 
@@ -696,7 +696,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 <hr>
 
-#### **abdominais** 🙏
+### **abdominais** 🙏
 
 🔛***Etapa iniciada às 17:30***
 

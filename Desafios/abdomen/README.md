@@ -610,7 +610,7 @@ Gostei desse modo, pega bem os oblíquos:
 
 > ESQUECI DE TIRAR A PORRA DO PRINT! Mas foram menos de 10 minutos em 15 exercícios!
 
-+ 1min prancha
+> + 1min prancha
 
 ***Etapa finalizada às 12:00*** 🔚
 
@@ -635,8 +635,19 @@ Gostei desse modo, pega bem os oblíquos:
 
 ***Etapa finalizada às 20:05*** 🔚
 
+> **prancha** 💘
 
-#### Total PRANCHA: 21min - não finalizado ainda
+🔛***Etapa iniciada às 20:20***
+
+- 2:00 min (reta)
+- 5:00min => 10x cada lado segurando 30s (lateral com torção)
+
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+
+***Etapa finalizada às 21:20*** 🔚
+
+#### Total PRANCHA: 23min - não finalizado ainda
 #### Total ABDOMINAIS: 650 🔥💪🏆
 
 <hr>

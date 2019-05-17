@@ -194,3 +194,4 @@ Sei que não deveria tomar café a noite mas era para matar a garrafa  😝
 - 17:40: 1 xícara de café c/ adoçante sacarina;
 - 18:44: 1 xícara de café c/ adoçante sacarina;
 - 19:30: 1 mini ameixa;
+- 21:14: 1/2 abacate + 3 colheres de aveia;

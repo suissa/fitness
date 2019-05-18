@@ -712,15 +712,27 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
-- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º)
-- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º)
+- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º) 🔥
+- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º) 🔥
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem subir)
+
+***Etapa finalizada às 21:00 com 800 ABDOMINAIS*** 🔚
+
+<hr>
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 21:10***
+
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+
+***Etapa finalizada às 21:15 com 33min de PRANCHA*** 🔚
 
 
-***Etapa finalizada às 20:40 com 700 ABDOMINAIS*** 🔚
-
-
-#### Total PRANCHA: 30min 🔥💪
-#### Total ABDOMINAIS: 700 🔥💪🏆
+#### Total PRANCHA: 33min 🔥💪🏆
+#### Total ABDOMINAIS: 800 🔥💪🏆
 
 <hr>
 

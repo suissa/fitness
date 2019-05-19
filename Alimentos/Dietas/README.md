@@ -69,10 +69,37 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
   - Proteínas: 24g - 32%;
   - Gorduras Totais:5,4g - 10%;
     - Gorduras Saturadas: 1,1g - 5%;
-  - Gorduras Trans: 0g - **
-  - Fibra Alimentar: 0g	- 0%
-  - Sódio:	88mg - 4%.
-- **ovos**:
+  - Gorduras Trans: 0g - **;
+  - Fibra Alimentar: 0g	- 0%;
+  - Sódio:	88mg - 4%;
+- **ovos (1 unidade)**:
+  - Valor Energético:	65,7kcal - 3,29%;
+  - Carboidratos:	0,27 g - 0,09%;
+  - Proteínas: 5,99g - 7,98%;
+  - Gorduras totais: 4,28g - 7,77%;
+    - Gorduras saturadas:	1,31g - 5,93%;
+  - Fibra alimentar: 0g -	0%;
+  - Sódio	65,7 mg	2,74 %;
+
+
+#### Gorduras
+
+##### Gordura Saturada
+
+A gordura saturada é um dos tipos de gordura presentes nos alimentos. É distinguida da gordura insaturada no sentido em que não há ligação dupla entre dois átomos de carbono vizinhos numa cadeia de ácido graxo. Isto é, a cadeia é completamente “saturada” com átomos de hidrogênio. 
+
+**A gordura saturada ocorre de forma natural nos animais, mas em variedades de coco, por exemplo, sua concentração é maior. Seu estado físico geralmente é sólido à temperatura ambiente. Enquanto que a gordura insaturada, como a que predomina no azeite, permanece de forma líquida.** A gordura saturada é menos propícia a perder as suas propriedades enquanto é utilizada na preparação de alimentos.
+
+
+##### Gordura Insaturada
+
+**Gorduras insaturadas são mais saudáveis do que as gorduras saturadas. Os alimentos que contêm gorduras insaturadas são por exemplo o abacate, as nozes e castanhas, e o azeite, sendo este mais saudável na apresentação extra virgem.** 
+
+> Cabe ressaltar que a gordura trans é menos saudável que a gordura saturada pois o organismo só sabe metabolizar a forma cis, sendo que a forma trans, não sendo metabolizada, fica indefinidamente depositada no nosso organismo.
+
+A gordura insaturada eleva o nível de lipoproteína de alta densidade no sangue (HDL, ou "colesterol bom"). Isso reduz a formação e/ou manutenção de ateroma, isto é, a placa de gordura no interior de veias e artérias, que pode causar hipertensão arterial, enfarte e derrame cerebral. São encontradas em óleos de origem vegetal, semente, e castanhas em geral.
+
+A gordura insaturada deste tipo de subdivide-se em 2 grupos: as monoinsaturadas e as poliinsaturadas. Elas atuam de forma diferente das saturadas no organismo e são consideradas benéficas, pois contribuem para redução do colesterol no sangue, quando consumidas em substituição das gorduras saturada e trans. A monoinsaturada é a mais benéfica de todas, pois colabora para redução do colesterol de baixa densidade (LDL), sem reduzir o colesterol de alta densidade (HDL)
 
 <hr>
 

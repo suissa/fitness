@@ -50,6 +50,33 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
 
 <hr>
 
+### Lista de Compras
+
+- **Frutas**: morango, framboesa, abacate;
+- **Leite e derivados**: queijo coalho, muçarela, cream cheese, iogurtes e manteiga;
+- **Carnes e proteínas**:  frango, bacon, bisteca suína e ovos;
+- **Vegetais de baixa caloria**: morango, framboesa, abacate;
+- **Frutos do mar**: Atum, salmão, peixe branco e polvo.
+- **Grãos**: castanha de caju, amendoim e amêndoas.
+
+#### Carnes e proteínas
+
+- **frango**:
+- **bacon**:
+- **bisteca suína (150 g)**:
+  - Valor Energético:	146kcal/612kJ	- 7%;
+  - Carboidratos:	0g - 0%;
+  - Proteínas: 24g - 32%;
+  - Gorduras Totais:5,4g - 10%;
+    - Gorduras Saturadas: 1,1g - 5%;
+  - Gorduras Trans: 0g - **
+  - Fibra Alimentar: 0g	- 0%
+  - Sódio:	88mg - 4%.
+- **ovos**:
+
+<hr>
+
+
 ### Cardápio da dieta cetogênica
 
 A seguir, confira um exemplo de cardápio da dieta cetogênica:

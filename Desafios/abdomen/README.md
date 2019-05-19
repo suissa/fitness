@@ -755,9 +755,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 ***Etapa finalizada às 10:10 com 10 minutos AO TOTAL*** 🔚
 
-
-
-> TREINO EM ANDAMENTO mas parei para programar!
+> Parei o treino para programar e beber vinho! 
 
 
 ## Explicação 

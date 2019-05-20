@@ -777,7 +777,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 
-**TOTAL = 34:00min** 🔥💪🏆
+**TOTAL = 34:00min // MEU RECORD ATUAL**  🔥💪🏆
 
 > **EM JEJUM**
 

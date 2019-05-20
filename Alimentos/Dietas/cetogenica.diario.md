@@ -22,7 +22,7 @@ Peso: a se pesar
 TOTAL = 3.62g
 
 
-### Café da Tarde
+### Lanche da Tarde - 15:40
 
 - 375g de peito de frango grelhado
   Tabela nutricional	% VD (*)
@@ -33,3 +33,4 @@ TOTAL = 3.62g
   Gorduras saturadas	3,75 g	17,05 %
   Fibra alimentar	0 g	0 %
   Sódio	187,5 mg	7,81 %
+- 1 abacate

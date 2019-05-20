@@ -794,10 +794,17 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda
 
-TOTAL = 270x
+***Etapa finalizada às 15:00 com TOTAL de 280 abdominais*** 🔚
+
+> PAUSA PRA COMER 375g de peito de frango grelhado.
+> E aproveitar para programar tb.
+
+- início: 15:40
+- fim: 17:00
 
 
-***Etapa finalizada às *** 🔚
+
+
 
 
 `

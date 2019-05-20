@@ -63,6 +63,13 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
 
 - **frango**:
 - **bacon**:
+  - Valor energético: 541 kcal	27,05 %
+  - Carboidratos: 1,43 g	0,48 %
+  - Proteínas: 37,04 g	49,39 %
+  - Gorduras totais: 41,77 g	75,95 %
+  - Gorduras saturadas: 13,73 g	62,41 %
+  - Fibra alimentar: 0 g	0 %
+  - Sódio	2310 mg	96,25 %
 - **bisteca suína (150 g)**:
   - Valor Energético:	146kcal/612kJ	- 7%;
   - Carboidratos:	0g - 0%;
@@ -99,7 +106,9 @@ A gordura saturada é um dos tipos de gordura presentes nos alimentos. É distin
 
 A gordura insaturada eleva o nível de lipoproteína de alta densidade no sangue (HDL, ou "colesterol bom"). Isso reduz a formação e/ou manutenção de ateroma, isto é, a placa de gordura no interior de veias e artérias, que pode causar hipertensão arterial, enfarte e derrame cerebral. São encontradas em óleos de origem vegetal, semente, e castanhas em geral.
 
-A gordura insaturada deste tipo de subdivide-se em 2 grupos: as monoinsaturadas e as poliinsaturadas. Elas atuam de forma diferente das saturadas no organismo e são consideradas benéficas, pois contribuem para redução do colesterol no sangue, quando consumidas em substituição das gorduras saturada e trans. A monoinsaturada é a mais benéfica de todas, pois colabora para redução do colesterol de baixa densidade (LDL), sem reduzir o colesterol de alta densidade (HDL)
+> A gordura insaturada deste tipo de subdivide-se em 2 grupos: as monoinsaturadas e as poliinsaturadas. 
+
+Elas atuam de forma diferente das saturadas no organismo e são consideradas benéficas, pois contribuem para redução do colesterol no sangue, quando consumidas em substituição das gorduras saturada e trans. A monoinsaturada é a mais benéfica de todas, pois colabora para redução do colesterol de baixa densidade (LDL), sem reduzir o colesterol de alta densidade (HDL)
 
 <hr>
 

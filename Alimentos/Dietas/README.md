@@ -106,14 +106,30 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
   - Fibra alimentar: 0,2g -	0,82%;
   - Sódio: 0,12mg -	0,01%;
 - **framboesa (1 unidade média)**:
-  - Valor energético:	3,64kcal -0,18%;
+  - Valor energético:	3,64kcal - 0,18%;
   - Carboidratos:	0,84g - 0,28%;
   - Proteínas: 0,08g - 0,11%;
   - Gorduras totais: 0,05g - 0,08%;
     - Gorduras saturadas:	0g - 0%;
   - Fibra alimentar: 0,46g - 1,82%;
   - Sódio: 0,07mg - 0%;
-- **abacate**: ;
+- **abacate (1 unidade média)**: // CARALEO ESSE EH FODA!!
+  - Valor energético:	412,8kcal - 20,64%;
+  - Carboidratos:	25,8g - 8,6%;
+  - Proteínas: 5,16g - 6,88%;
+  - Gorduras totais: 51,6g - 93,82%;
+    - Gorduras saturadas: 9,89g - 44,95%;
+  - Fibra alimentar: 27,09g - 108,36%;
+  - Sódio: 0mg - 0%;
+
+valor energético)	412,8 kcal	20,64 %
+Pontos*	9	-
+Carboidratos	25,8 g	8,6 %
+Proteínas	5,16 g	6,88 %
+Gorduras totais	51,6 g	93,82 %
+Gorduras saturadas	9,89 g	44,95 %
+Fibra alimentar	27,09 g	108,36 %
+Sódio	0 mg	0 %
 
 
 #### Gorduras

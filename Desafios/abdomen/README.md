@@ -758,6 +758,27 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 > Parei o treino para programar e beber vinho! 
 
 
+# >> INÍCIO DA DIETA CETOGÊNICA <<
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 06:50***
+
+- 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
+- 🌟**2:00 min (lateral esquerda) // MEU RECORD ATUAL** 🏆
+- 🌟**2:00 min (lateral direita) // MEU RECORD ATUAL** 🏆
+- 🌟**1:50 min (reta com 20 elevações de cada perna) // MEU RECORD ATUAL** 🏆
+
+=6
+- **14:00min => 10x cada lado segurando 30s (lateral com torção)** 🆕💪🏆
+
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+
+***Etapa finalizada às 10:10 com 10 minutos AO TOTAL*** 🔚
+
+
+
 ## Explicação 
 
 

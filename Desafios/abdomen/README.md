@@ -781,11 +781,25 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 > **EM JEJUM**
 
-***Etapa finalizada às 10:10 com 10 minutos AO TOTAL*** 🔚
+***Etapa finalizada às 10:10*** 🔚
+
+<hr>
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 14:20***
+
+- 🌟**120x 8Kg (mov. completo) // MEU RECORD ATUAL** 🔥💪🏆
+- 60x 8Kg (mov. completo)
+- 50x 8Kg (lateral direita)
+
+TOTAL = 220x
 
 
 
-***Etapa finalizada às 10:10 com 10 minutos AO TOTAL*** 🔚
+- 50x 8Kg (lateral direita)
+
+***Etapa finalizada às *** 🔚
 
 
 `

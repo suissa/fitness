@@ -792,12 +792,10 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - 🌟**120x 8Kg (mov. completo) // MEU RECORD ATUAL** 🔥💪🏆
 - 60x 8Kg (mov. completo)
 - 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda
 
-TOTAL = 220x
+TOTAL = 270x
 
-
-
-- 50x 8Kg (lateral direita)
 
 ***Etapa finalizada às *** 🔚
 

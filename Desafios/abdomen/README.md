@@ -731,7 +731,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 ***Etapa finalizada às 21:15 com 33min de PRANCHA*** 🔚
 
 
-#### Total PRANCHA: 33min 🔥💪🏆
+#### Total PRANCHA: 33min 🔥💪
 #### Total ABDOMINAIS: 800 🔥💪🏆
 
 <hr>
@@ -762,23 +762,33 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 ### **prancha** 💘
 
+> **Só no café!**
+
 🔛***Etapa iniciada às 06:50***
 
 - 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
 - 🌟**2:00 min (lateral esquerda) // MEU RECORD ATUAL** 🏆
 - 🌟**2:00 min (lateral direita) // MEU RECORD ATUAL** 🏆
-- 🌟**1:50 min (reta com 20 elevações de cada perna) // MEU RECORD ATUAL** 🏆
-
-=6
-- **14:00min => 10x cada lado segurando 30s (lateral com torção)** 🆕💪🏆
-
+- 🌟**1:30 min (reta com 20 elevações de cada perna) // MEU RECORD ATUAL** 🏆
+- 🌟**15:00min => 10x cada lado segurando 30s (lateral com torção)** 🏆
+- 2:30 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+
+**TOTAL = 34:00min** 🔥💪🏆
+
+> **EM JEJUM**
 
 ***Etapa finalizada às 10:10 com 10 minutos AO TOTAL*** 🔚
 
 
 
+***Etapa finalizada às 10:10 com 10 minutos AO TOTAL*** 🔚
+
+
+`
 ## Explicação 
 
 

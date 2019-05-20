@@ -56,7 +56,7 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
 - **Frutas**: morango, framboesa, abacate;
 - **Leite e derivados**: queijo coalho, muçarela, cream cheese, iogurtes e manteiga;
 - **Vegetais de baixa caloria**: morango, framboesa, abacate;
-- **Frutos do mar**: Atum, salmão, peixe branco e polvo.
+- **Frutos do mar**: Atum, salmão, peixe branco, sardinha.
 - **Grãos**: castanha de caju, amendoim e amêndoas.
 
 #### Carnes e proteínas
@@ -97,7 +97,7 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
 
 #### Frutas
 
-- **morango (1 unidade)**:  
+- **morango (1 unidade média)**:  
   - Valor energético:	3,6 kcal -0,18%;
   - Carboidratos:	0,82g -0,27%;
   - Proteínas: 0,11g - 0,14%;
@@ -105,7 +105,14 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
     - Gorduras saturadas:	0,02g -	0,08%;
   - Fibra alimentar: 0,2g -	0,82%;
   - Sódio: 0,12mg -	0,01%;
-- **framboesa**: : 
+- **framboesa (1 unidade média)**:
+  - Valor energético:	3,64kcal -0,18%;
+  - Carboidratos:	0,84g - 0,28%;
+  - Proteínas: 0,08g - 0,11%;
+  - Gorduras totais: 0,05g - 0,08%;
+    - Gorduras saturadas:	0g - 0%;
+  - Fibra alimentar: 0,46g - 1,82%;
+  - Sódio: 0,07mg - 0%;
 - **abacate**: ;
 
 

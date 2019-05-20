@@ -52,9 +52,9 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
 
 ### Lista de Compras
 
+- **Carnes e proteínas**:  frango, bacon, bisteca suína e ovos;
 - **Frutas**: morango, framboesa, abacate;
 - **Leite e derivados**: queijo coalho, muçarela, cream cheese, iogurtes e manteiga;
-- **Carnes e proteínas**:  frango, bacon, bisteca suína e ovos;
 - **Vegetais de baixa caloria**: morango, framboesa, abacate;
 - **Frutos do mar**: Atum, salmão, peixe branco e polvo.
 - **Grãos**: castanha de caju, amendoim e amêndoas.
@@ -94,6 +94,19 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
     - Gorduras saturadas:	1,31g - 5,93%;
   - Fibra alimentar: 0g -	0%;
   - Sódio	65,7 mg	2,74 %;
+
+#### Frutas
+
+- **morango (1 unidade)**:  
+  - Valor energético:	3,6 kcal -0,18%;
+  - Carboidratos:	0,82g -0,27%;
+  - Proteínas: 0,11g - 0,14%;
+  - Gorduras totais: 0,04g - 0,07%;
+    - Gorduras saturadas:	0,02g -	0,08%;
+  - Fibra alimentar: 0,2g -	0,82%;
+  - Sódio: 0,12mg -	0,01%;
+- **framboesa**: : 
+- **abacate**: ;
 
 
 #### Gorduras

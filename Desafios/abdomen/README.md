@@ -800,10 +800,15 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 > E aproveitar para programar tb.
 
 - início: 15:40
-- fim: 17:00
+- fim: 17:25
 
+🔛***Etapa iniciada às 17:25***
 
+- 70x 8Kg (mov. completo)
 
+TOTAL = 350
+
+***Etapa finalizada às 21:00 com TOTAL de 1000 abdominais*** 🔚
 
 
 

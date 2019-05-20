@@ -61,16 +61,23 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
 
 #### Carnes e proteínas
 
-- **frango**:
-- **bacon**:
-  - Valor energético: 541 kcal	27,05 %
-  - Carboidratos: 1,43 g	0,48 %
-  - Proteínas: 37,04 g	49,39 %
-  - Gorduras totais: 41,77 g	75,95 %
-  - Gorduras saturadas: 13,73 g	62,41 %
-  - Fibra alimentar: 0 g	0 %
+- **frango (peito sem pele 100g)**:
+  - Valor energético:	159kcal -	7,95%;
+  - Carboidratos: 0g - 0%;
+  - Proteínas: 32g - 42,67%;
+  - Gorduras totais: 2,5g - 4,55%;
+    - Gorduras saturadas: 1g - 4,55%;
+  - Fibra alimentar: 0g - 0%;
+  - Sódio: 50mg	- 2,08%;
+- **bacon (100g)**:
+  - Valor energético: 541 kcal - 27,05%
+  - Carboidratos: 1,43g	0,48 %
+  - Proteínas: 37,04g	49,39 %
+  - Gorduras totais: 41,77g	75,95 %
+    - Gorduras saturadas: 13,73g	62,41%
+  - Fibra alimentar: 0g	0 %
   - Sódio	2310 mg	96,25 %
-- **bisteca suína (150 g)**:
+- **bisteca suína (150g)**:
   - Valor Energético:	146kcal/612kJ	- 7%;
   - Carboidratos:	0g - 0%;
   - Proteínas: 24g - 32%;
@@ -202,4 +209,15 @@ Morango, mirtilo, framboesa, cranberries, amoras, cerejas e abacate.
 
 ### Alimentos PROIBIDOS
 
-****Massas, arroz, pães, cevada, trigo, quinoa, bolos, cerveja, batatas, batata-doce, inhame, mel, refrigerante, sucos, doces, chocolate, sucrilhos, maçã, laranja, banana, abacaxi, manga, mamão, mexerica, uvas, margarina, óleos como de canola, soja, milho, etc; leite desnatado, iogurte desnatado e refrigerante diet.****
+**Massas, arroz, pães, cevada, trigo, quinoa, bolos, cerveja, batatas, batata-doce, inhame, mel, refrigerante, sucos, doces, chocolate, sucrilhos, maçã, laranja, banana, abacaxi, manga, mamão, mexerica, uvas, margarina, óleos como de canola, soja, milho, etc; leite desnatado, iogurte desnatado e refrigerante diet.**
+
+
+
+## Dieta para perder barriga
+
+O que comer na dieta para perder barriga
+
+### Peixes e frutos do mar
+
+A inflamação é um dos principais responsáveis pelo ganho de peso. Peixes e frutos do mar, por serem ricos em ômega 3, um ácido graxo essencial, ajudam a desinflamar as células de gordura, atuando no controle do problema e ajudando a perder barriga. Além disso, esses alimentos também aceleram a transformação da glicose em energia, impedindo que ela seja estocada sob a forma de gordura. A inclusão desses alimentos no cardápio pode ser feita pelo menos três vezes por semana.
+

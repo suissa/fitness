@@ -777,7 +777,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - 🌟**2:00 min (lateral esquerda) // MEU RECORD ATUAL** 🏆
 - 🌟**2:00 min (lateral direita) // MEU RECORD ATUAL** 🏆
 - 1:30 min (reta com 20 elevações de cada perna)
-- 🌟**15:00min => 10x cada lado segurando 30s (lateral com torção)** 🏆
+- 🌟**15:00min => 10x cada lado segurando 30s (lateral com torção)** 🔥💪
 - 2:30 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
@@ -849,21 +849,21 @@ TOTAL = 1000
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 - 1:30 min (lateral esquerda)
-- 🌟**1:30 min (reta com 30 elevações de cada perna) // MEU RECORD ATUAL** 🏆
+- 🌟**1:30 min (reta com 30 elevações de cada perna) // MEU RECORD ATUAL** 🔥💪🏆
+- 🌟**16:00min => 10x cada lado segurando 30s (lateral com torção)** 🔥💪🏆
+- 3:00 min (reta)
 
-=9
-
-
-- 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
-- 🌟**2:00 min (lateral esquerda) // MEU RECORD ATUAL** 🏆
-- 🌟**2:00 min (lateral direita) // MEU RECORD ATUAL** 🏆
-
+TOTAL=28:30
+- 1:30 min (reta)
 
 **TOTAL = 34:00min // MEU RECORD ATUAL**  🔥💪🏆
 
 > **EM JEJUM**
 
 
+
+#### Total PRANCHA:  🔥💪
+#### Total ABDOMINAIS:  🔥💪🏆
 
 <hr>
 

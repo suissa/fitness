@@ -1,5 +1,12 @@
 # Dieta Cetogênica - Diário
 
+- início: 20/Maio/2019;
+- prazo mínimo: 30 dias;
+- **consumo máximo de Carboidratos: de 20g**
+- **consumo máximo de Proteínas: de 60/70g**
+- **consumo máximo de Gorduras: de 50/60g**
+- **consumo máximo de Calorias: de 1000/1500kcalg**
+
 
 ## 1 - Segunda-feira 20/Maio/2019
 
@@ -98,16 +105,28 @@ Peso: 63Kg
 
 
 
-### Almoço - 13:00
+### Almoço - 12:40
 
-- 2 bistecas
-  - Calorias (valor energético)	532,8 kcal	26,64 %
-  - Pontos*	16	-
-  - Carboidratos	0 g	0 %
-  - Proteínas	64,7 g	86,27 %
-  - Gorduras totais	28,37 g	51,58 %
-  - Gorduras saturadas	9,7 g	44,07 %
-  - Fibra alimentar	0 g	0 %
-  - Sódio	206,4 mg	8,6 %
+- **alface verde lisa (50g)**
+  - Valor energético: 9,5 kcal;
+  - Carboidratos: 1,45g;
+  - Proteínas: 0,65g;
+  - Gorduras totais: 0,1g;
+    - Gorduras saturadas: 0g;
+  - Fibra alimentar: 0g;
+  - Sódio: 0mg;
 
+- **2 bistecas (grelhadas)**
+  - Valor energético: 517,26kcal;
+  - Carboidratos: 0g;
+  - Proteínas: 62,82g ;
+  - Gorduras totais: 27,54g;
+    - Gorduras saturadas: 9,41g;
+  - Fibra alimentar: 0g;
+  - Sódio: 200,38mg;
+  
 
+#### TOTAL
+- Carboidratos: 3,62g;
+- Proteínas: 41,8g;
+- Gorduras: 28,37g;

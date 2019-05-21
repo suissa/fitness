@@ -57,7 +57,7 @@ Muitas pessoas acreditam que a dieta cetogênica pode ser uma aliada do tratamen
 - **Carnes e proteínas**:  frango, bacon, bisteca suína e ovos;
 - **Frutas**: morango, framboesa, abacate;
 - **Leite e derivados**: queijo coalho, muçarela, cream cheese, iogurtes e manteiga;
-- **Vegetais de baixa caloria**: morango, framboesa, abacate;
+- **Vegetais de baixa caloria**: alface, couve, espinafre, acelga; couve-flor, brócolis, repolho, pepino, rabanete e cebolinha;
 - **Frutos do mar**: Atum, salmão, peixe branco, sardinha.
 - **Grãos**: castanha de caju, amendoim e amêndoas.
 

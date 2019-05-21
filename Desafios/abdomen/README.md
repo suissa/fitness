@@ -758,6 +758,13 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 > Parei o treino para programar e beber vinho! 
 
 
+<hr>
+
+<br>
+<br>
+
+### 20/05/2019 - Segunda-feira
+
 # >> INÍCIO DA DIETA CETOGÊNICA <<
 
 ### **prancha** 💘
@@ -769,7 +776,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
 - 🌟**2:00 min (lateral esquerda) // MEU RECORD ATUAL** 🏆
 - 🌟**2:00 min (lateral direita) // MEU RECORD ATUAL** 🏆
-- 🌟**1:30 min (reta com 20 elevações de cada perna) // MEU RECORD ATUAL** 🏆
+- 1:30 min (reta com 20 elevações de cada perna)
 - 🌟**15:00min => 10x cada lado segurando 30s (lateral com torção)** 🏆
 - 2:30 min (reta)
 - 1:30 min (lateral esquerda)
@@ -822,6 +829,46 @@ TOTAL = 1000
 
 #### Total PRANCHA: 34min 🔥💪🏆 // RECORD ATUAL
 #### Total ABDOMINAIS: 1000 🔥💪🏆 // RECORD ATUAL
+
+
+<hr>
+
+<br>
+<br>
+
+
+### 21/05/2019 - Terç-feira
+
+
+> **Só no café!**
+
+🔛***Etapa iniciada às 08:10***
+
+- 3:00 min (reta)
+- 1:30 min (lateral direita)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 1:30 min (lateral esquerda)
+- 🌟**1:30 min (reta com 30 elevações de cada perna) // MEU RECORD ATUAL** 🏆
+
+=9
+
+
+- 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
+- 🌟**2:00 min (lateral esquerda) // MEU RECORD ATUAL** 🏆
+- 🌟**2:00 min (lateral direita) // MEU RECORD ATUAL** 🏆
+
+
+**TOTAL = 34:00min // MEU RECORD ATUAL**  🔥💪🏆
+
+> **EM JEJUM**
+
+
+
+<hr>
+
+<br>
+<br>
 
 
 ## Explicação 

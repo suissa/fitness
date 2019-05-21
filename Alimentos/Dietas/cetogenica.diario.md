@@ -89,8 +89,16 @@ Peso: 63Kg
 
 
 
+## 2 - Terca-feira 21/Maio/2019
 
-NEM FIZ BISTECA!!! Vai ficar pro almoço!
+
+### Café da manhã - 07:30
+
+- café bem forte!!!
+
+
+
+### Almoço - 13:00
 
 - 2 bistecas
   - Calorias (valor energético)	532,8 kcal	26,64 %
@@ -103,7 +111,3 @@ NEM FIZ BISTECA!!! Vai ficar pro almoço!
   - Sódio	206,4 mg	8,6 %
 
 
-
-## 2 - Terca-feira 21/Maio/2019
-
-- café bem forte!!!

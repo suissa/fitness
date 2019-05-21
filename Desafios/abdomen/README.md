@@ -789,7 +789,7 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 
 🔛***Etapa iniciada às 14:20***
 
-- 🌟**120x 8Kg (mov. completo) // MEU RECORD ATUAL** 🔥💪🏆
+- 120x 8Kg (mov. completo) // MEU EX-RECORD ATUAL** 🔥💪
 - 60x 8Kg (mov. completo)
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda
@@ -802,17 +802,28 @@ Ainda mais que preciso agilizar um freela q vai me tomar boa parte do tempo de h
 - início: 15:40
 - fim: 17:25
 
-🔛***Etapa iniciada às 17:25***
+🔛***Etapa iniciada às 21:00***
 
 - 70x 8Kg (mov. completo)
+- 🌟**200x 8Kg (mov. completo) // MEU RECORD ATUAL** 🔥💪🏆
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 🌟**80x 8Kg (mov. curto sem deitar) // MEU RECORD ATUAL** 🔥💪🏆
+- 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (mov. curto sem subir)
+- 70x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem subir)
 
-TOTAL = 350
+TOTAL = 1000
 
-***Etapa finalizada às 21:00 com TOTAL de 1000 abdominais*** 🔚
+***Etapa finalizada às 23:50 com TOTAL de 1000 abdominais*** 🔚
 
 
+#### Total PRANCHA: 34min 🔥💪🏆 // RECORD ATUAL
+#### Total ABDOMINAIS: 1000 🔥💪🏆 // RECORD ATUAL
 
-`
+
 ## Explicação 
 
 

@@ -12,7 +12,9 @@ A dieta cetogênica propõe reduzir bruscamente a quantidade de carboidratos con
 
 - início: 20/Maio/2019;
 - prazo mínimo: 30 dias;
-- **consumo máximo: de 20g**
+- **consumo máximo de Carboidratos: de 20g**
+- **consumo máximo de Proteínas: de 60/70g**
+- **consumo máximo de Calorias: de 1000/1500kcalg**
 
 <hr>
 

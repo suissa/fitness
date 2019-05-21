@@ -5,7 +5,6 @@
 
 Peso: 63Kg
 
-
 ### Café da manhã
 
 - 06:40 - 2 xícaras de café com sacarina;
@@ -56,6 +55,43 @@ Peso: 63Kg
 
 ### Janta - 22:00
 
+ - **Queijo mussarela (4 fatias médias)**
+  - Valor energético:	254,4 kcal
+  - Carboidratos:	1,98 g
+  - Proteínas:	17,28g;
+  - Gorduras totais:	19,71 g;
+    - Gorduras saturadas:	12,45 g;
+  - Fibra alimentar:	0 g;
+  - Sódio:	332 mg;
+ - **Presunto (3 fatias médias)**
+  - Valor energético	41,63 kcal;
+  - Carboidratos	0 g;
+  - Proteínas	6,75g;
+  - Gorduras totais:1,46 g;
+    - Gorduras saturadas:0,45 g;
+  - Fibra alimentar:0 g;
+  - Sódio:466,88mg;
+ - **Presunto (5 azeitonas)**
+  - Valor energético:	41,63 kcal;
+  - Carboidratos: 1g;
+  - Proteínas: 0g;
+  - Gorduras totais:1g;
+    - Gorduras saturadas: 0g;
+    - Gorduras trans: 0g;
+  - Fibra alimentar	1g;
+  - Sódio	287mg;
+
+
+### TOTAL GERAL DIÁRIO
+
+- Carboidratos: 8,62g;
+- Proteínas:  206,23g;
+
+
+
+
+NEM FIZ BISTECA!!! Vai ficar pro almoço!
+
 - 2 bistecas
   - Calorias (valor energético)	532,8 kcal	26,64 %
   - Pontos*	16	-
@@ -66,7 +102,8 @@ Peso: 63Kg
   - Fibra alimentar	0 g	0 %
   - Sódio	206,4 mg	8,6 %
 
-## TOTAL GERAL
 
-- Carboidratos: 3,62g;
-- Proteínas:  166,96g;
+
+## 2 - Terca-feira 21/Maio/2019
+
+- café bem forte!!!

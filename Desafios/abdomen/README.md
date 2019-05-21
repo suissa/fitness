@@ -863,6 +863,37 @@ TOTAL = 1000
 
 ***Etapa finalizada às 13:40*** 🔚
 
+<hr>
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 19:40***
+
+
+- 100x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+
+TOTAL = 150
+
+
+- 50x 8Kg (mov. curto sem deitar) 
+- 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º) 🔥
+- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º) 🔥
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem subir)
+
+
+***Etapa finalizada às 22:30*** 🔚
 
 
 #### Total PRANCHA: 34:30min  🔥💪🏆

@@ -78,7 +78,7 @@ Peso: 63Kg
     - Gorduras saturadas:0,45 g;
   - Fibra alimentar:0 g;
   - Sódio:466,88mg;
- - **Presunto (5 azeitonas)**
+ - **Azeitonas (5 unidade)**
   - Valor energético:	41,63 kcal;
   - Carboidratos: 1g;
   - Proteínas: 0g;

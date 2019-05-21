@@ -259,3 +259,8 @@ O que comer na dieta para perder barriga
 
 A inflamação é um dos principais responsáveis pelo ganho de peso. Peixes e frutos do mar, por serem ricos em ômega 3, um ácido graxo essencial, ajudam a desinflamar as células de gordura, atuando no controle do problema e ajudando a perder barriga. Além disso, esses alimentos também aceleram a transformação da glicose em energia, impedindo que ela seja estocada sob a forma de gordura. A inclusão desses alimentos no cardápio pode ser feita pelo menos três vezes por semana.
 
+
+
+## Referencias:
+
+- https://www.senhortanquinho.com/carboidratos-liquidos-como-calcular/

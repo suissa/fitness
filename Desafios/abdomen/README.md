@@ -876,8 +876,10 @@ TOTAL = 1000
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
 
-TOTAL = 350
+TOTAL = 450
 
 
 - 50x 8Kg (mov. curto sem deitar) 

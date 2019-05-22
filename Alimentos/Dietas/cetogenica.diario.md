@@ -124,7 +124,24 @@ Peso: 63Kg
     - Gorduras saturadas: 9,41g;
   - Fibra alimentar: 0g;
   - Sódio: 200,38mg;
-  
+
+### Lanche da tarde - 19:00
+ - **Queijo mussarela (4 fatias médias)**
+  - Valor energético:	254,4 kcal
+  - Carboidratos:	1,98 g
+  - Proteínas:	17,28g;
+  - Gorduras totais:	19,71 g;
+    - Gorduras saturadas:	12,45 g;
+  - Fibra alimentar:	0 g;
+  - Sódio:	332 mg;
+ - **Presunto (3 fatias médias)**
+  - Valor energético	41,63 kcal;
+  - Carboidratos	0 g;
+  - Proteínas	6,75g;
+  - Gorduras totais:1,46 g;
+    - Gorduras saturadas:0,45 g;
+  - Fibra alimentar:0 g;
+  - Sódio:466,88mg;
 
 #### TOTAL
 - Carboidratos: 3,62g;

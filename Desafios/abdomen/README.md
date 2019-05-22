@@ -878,8 +878,19 @@ TOTAL = 1000
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
 
-TOTAL = 450
+***Etapa finalizada às 22:00 com 500 abdominais*** 🔚
+
+
+### **app - Barriga tanquinho**
+
+🔛***Etapa iniciada às 22:10***
+
+
+
+***Etapa finalizada às 22:20*** 🔚
+
 
 
 - 50x 8Kg (mov. curto sem deitar) 

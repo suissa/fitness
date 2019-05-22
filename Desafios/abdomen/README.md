@@ -935,11 +935,12 @@ TOTAL = 1000
 - 2:00 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
+- 7:00min => 10x cada lado segurando 30s (lateral com torção)
+- 2:00 min (reta)
 
-TOTAL = 11
-> **Senti que estou fraco pra fazer pranchas nesses momento, vou diminuir meu total**
+***Etapa finalizada às 09:45 com total de 20 minutos*** 🔚
 
-- 9:00min => 10x cada lado segurando 30s (lateral com torção)
+> **Senti que estou fraco pra fazer pranchas nesses momento, por isso diminui meu total!**
 
 
 #### Total PRANCHA: 

@@ -147,3 +147,55 @@ Peso: 63Kg
 - Carboidratos: 3,62g;
 - Proteínas: 41,8g;
 - Gorduras: 28,37g;
+
+
+### Almoço - 23:40
+
+- **alface verde lisa (50g)**
+  - Valor energético: 9,5 kcal;
+  - Carboidratos: 1,45g;
+  - Proteínas: 0,65g;
+  - Gorduras totais: 0,1g;
+    - Gorduras saturadas: 0g;
+  - Fibra alimentar: 0g;
+  - Sódio: 0mg;
+
+- **2 bistecas (grelhadas)**
+  - Valor energético: 517,26kcal;
+  - Carboidratos: 0g;
+  - Proteínas: 62,82g ;
+  - Gorduras totais: 27,54g;
+    - Gorduras saturadas: 9,41g;
+  - Fibra alimentar: 0g;
+  - Sódio: 200,38mg;
+
+
+### Janta - 23:30
+
+- **queijo prato (2fatias médias)** 
+  - Valor energético:	108 kcal	5,4 %
+  - Carboidratos	0,57 g	0,19 %
+  - Proteínas	6,81 g	9,08 %
+  - Gorduras totais	8,73 g	15,87 %
+    - Gorduras saturadas	4,89 g	22,23 %
+  - Fibra alimentar	0 g	0 %
+  - Sódio	174 mg	7,25 %
+
+- **2 bistecas (grelhadas)**
+  - Valor energético: 517,26kcal;
+  - Carboidratos: 0g;
+  - Proteínas: 62,82g ;
+  - Gorduras totais: 27,54g;
+    - Gorduras saturadas: 9,41g;
+  - Fibra alimentar: 0g;
+  - Sódio: 200,38mg;
+
+- **tomate (1 unidade média)** 
+Calorias (valor energético)	15 kcal	0,75 %
+Pontos*	0	-
+Carboidratos	3,1 g	1,03 %
+Proteínas	1,1 g	1,47 %
+Gorduras totais	0,2 g	0,36 %
+Gorduras saturadas	0 g	0 %
+Fibra alimentar	1,2 g	4,8 %
+Sódio	1 mg	0,04 %

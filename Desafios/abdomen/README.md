@@ -942,6 +942,22 @@ TOTAL = 1000
 
 > **Senti que estou fraco pra fazer pranchas nesses momento, por isso diminui meu total!**
 
+<hr>
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 12:05***
+
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem subir)
+
+TOTAL = 250
+
+***Etapa finalizada às *** 🔚
+
 
 #### Total PRANCHA: 
 #### Total ABDOMINAIS:

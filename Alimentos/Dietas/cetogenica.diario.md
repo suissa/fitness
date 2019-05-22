@@ -212,9 +212,10 @@ Peso: 63Kg
 
 
 #### TOTAL - FINAL
-- Carboidratos: 3,62g;
-- Proteínas: 41,8g;
-- Gorduras: 28,37g;
+
+- Carboidratos: 8,69g;
+- Proteínas: 147,07g;
+- Gorduras: 84,38g;
 
 <hr>
 <br>
@@ -231,7 +232,11 @@ Peso: 63Kg
 
 ### Almoço - 13:30
 
-- **alface verde lisa (50g)**
+- **alface verde lisa (35g)**
+
+
+
+
   - Valor energético: 9,5 kcal;
   - Carboidratos: 1,45g;
   - Proteínas: 0,65g;
@@ -239,3 +244,5 @@ Peso: 63Kg
     - Gorduras saturadas: 0g;
   - Fibra alimentar: 0g;
   - Sódio: 0mg;
+
+- **carne suína frita (50g)**

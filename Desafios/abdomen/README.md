@@ -908,7 +908,7 @@ TOTAL = 1000
 
 
 #### Total PRANCHA: 34:30min  🔥💪🏆
-#### Total ABDOMINAIS: 600 🔥💪
+#### Total ABDOMINAIS: 650 🔥💪
 
 <hr>
 

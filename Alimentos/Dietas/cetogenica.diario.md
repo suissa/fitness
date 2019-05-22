@@ -233,10 +233,6 @@ Peso: 63Kg
 ### Almoço - 13:30
 
 - **alface verde lisa (35g)**
-
-
-
-
   - Valor energético: 9,5 kcal;
   - Carboidratos: 1,45g;
   - Proteínas: 0,65g;

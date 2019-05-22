@@ -962,16 +962,17 @@ TOTAL = 1000
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (mov. curto sem subir)
-
-TOTAL = 700
-
-
-
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
+
+TOTAL = 800
+
+
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
 - 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (mov. completo)
 
 
 

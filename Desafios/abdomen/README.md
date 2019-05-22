@@ -916,6 +916,40 @@ TOTAL = 1000
 <br>
 
 
+
+### 22/05/2019 - Quarta-feira
+
+**Hoje é um dia que farei menos exercícios pq estou cheio de trampo acumulado!**
+
+> **Só no café!**
+
+<hr>
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 07:35***
+
+- 3:00 min (reta)
+- 1:30 min (lateral direita)
+- 1:30 min (lateral esquerda)
+- 2:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+
+TOTAL = 11
+> **Senti que estou fraco pra fazer pranchas nesses momento, vou diminuir meu total**
+
+- 9:00min => 10x cada lado segurando 30s (lateral com torção)
+
+
+#### Total PRANCHA: 
+#### Total ABDOMINAIS:
+
+<hr>
+
+<br>
+<br>
+
 ## Explicação 
 
 

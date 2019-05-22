@@ -887,34 +887,28 @@ TOTAL = 1000
 
 🔛***Etapa iniciada às 22:10***
 
-
+![Décimo dia do app](https://i.imgur.com/QVP7Ry0.jpg)
 
 ***Etapa finalizada às 22:20*** 🔚
 
 
+<hr>
 
-- 50x 8Kg (mov. curto sem deitar) 
-- 50x 8Kg (mov. curto sem subir)
-- 50x 8Kg (lateral direita)
-- 50x 8Kg (lateral esquerda)
-- 50x 8Kg (mov. curto sem deitar)
-- 50x 8Kg (lateral direita)
-- 50x 8Kg (lateral esquerda)
-- 50x 8Kg (mov. curto sem subir)
-- 50x 8Kg (mov. curto sem deitar)
-- 50x 8Kg (lateral direita)
-- 50x 8Kg (lateral esquerda)
-- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º) 🔥
-- 50x 8Kg (mov. curto sem subir com pernas levantadas 90º) 🔥
-- 50x 8Kg (mov. curto sem deitar)
-- 50x 8Kg (mov. curto sem subir)
+### **abdominais** 🙏
 
+🔛***Etapa iniciada às 22:40***
 
-***Etapa finalizada às 22:30*** 🔚
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+
+> PRECISO FAZER JANTA SE NAO MINHA VÓ ME APAVORA Q ESTA MTO TARDE :LOL:
+
+***Etapa finalizada às 23:15 com totla de 150 ABDOMINAIS*** 🔚
 
 
 #### Total PRANCHA: 34:30min  🔥💪🏆
-#### Total ABDOMINAIS:  
+#### Total ABDOMINAIS: 600 🔥💪
 
 <hr>
 

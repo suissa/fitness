@@ -95,6 +95,9 @@ Peso: 63Kg
 - Proteínas:  206,23g;
 
 
+<hr>
+<br>
+<br>
 
 ## 2 - Terca-feira 21/Maio/2019
 
@@ -102,8 +105,6 @@ Peso: 63Kg
 ### Café da manhã - 07:30
 
 - café bem forte!!!
-
-
 
 ### Almoço - 12:40
 
@@ -149,7 +150,7 @@ Peso: 63Kg
 - Gorduras: 28,37g;
 
 
-### Almoço - 23:40
+### Almoço - 12:30
 
 - **alface verde lisa (50g)**
   - Valor energético: 9,5 kcal;
@@ -169,6 +170,10 @@ Peso: 63Kg
   - Fibra alimentar: 0g;
   - Sódio: 200,38mg;
 
+#### TOTAL
+- Carboidratos: 1,45g;
+- Proteínas: 63,47g;
+- Gorduras: 27,64g;
 
 ### Janta - 23:30
 
@@ -191,11 +196,46 @@ Peso: 63Kg
   - Sódio: 200,38mg;
 
 - **tomate (1 unidade média)** 
-Calorias (valor energético)	15 kcal	0,75 %
-Pontos*	0	-
-Carboidratos	3,1 g	1,03 %
-Proteínas	1,1 g	1,47 %
-Gorduras totais	0,2 g	0,36 %
-Gorduras saturadas	0 g	0 %
-Fibra alimentar	1,2 g	4,8 %
-Sódio	1 mg	0,04 %
+  - Valor energético:	15 kcal;
+  - Carboidratos:	3,1g;
+  - Proteínas:	1,1g;
+  - Gorduras totais:	0,2g;
+    - Gorduras saturadas:	0g;
+  - Fibra alimentar:	1,2g;
+  - Sódio:	1 mg0,04%;
+
+
+#### TOTAL
+- Carboidratos: 3,62g;
+- Proteínas: 41,8g;
+- Gorduras: 28,37g;
+
+
+#### TOTAL - FINAL
+- Carboidratos: 3,62g;
+- Proteínas: 41,8g;
+- Gorduras: 28,37g;
+
+<hr>
+<br>
+<br>
+
+
+## Quarta-feira - 22/Maio/2019
+
+
+### Café da manhã - 07:30
+
+- café bem forte!!!
+
+
+### Almoço - 13:30
+
+- **alface verde lisa (50g)**
+  - Valor energético: 9,5 kcal;
+  - Carboidratos: 1,45g;
+  - Proteínas: 0,65g;
+  - Gorduras totais: 0,1g;
+    - Gorduras saturadas: 0g;
+  - Fibra alimentar: 0g;
+  - Sódio: 0mg;

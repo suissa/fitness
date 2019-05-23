@@ -242,3 +242,15 @@ Peso: 63Kg
   - Sódio: 0mg;
 
 - **carne suína frita (50g)**
+
+
+
+### Jantar - 21:30
+
+- **queijo prato (2 fatias médias)**
+- **mortadela defumada (2 fatias médias)**
+
+
+### Lanchinho - 22:30
+
+- **amendoim cru (75g)**

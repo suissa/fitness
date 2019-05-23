@@ -828,7 +828,7 @@ TOTAL = 1000
 
 
 #### Total PRANCHA: 34min 🔥💪🏆 // RECORD ATUAL
-#### Total ABDOMINAIS: 1000 🔥💪🏆 // RECORD ATUAL
+#### Total ABDOMINAIS: 1000 🔥💪
 
 
 <hr>
@@ -882,6 +882,7 @@ TOTAL = 1000
 
 ***Etapa finalizada às 22:00 com 500 abdominais*** 🔚
 
+<hr>
 
 ### **app - Barriga tanquinho**
 
@@ -969,23 +970,60 @@ TOTAL = 1000
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (mov. curto sem subir)
 - 50x 8Kg (mov. completo)
-
-TOTAL = 1050 // RECORD NOVO
-
 - 50x 8Kg (mov. completo)
 
+***Etapa finalizada às 20:30 com total de 1100 abdominais *** 🔚
+
+<hr>
+
+### **app - Barriga tanquinho**
+
+🔛***Etapa iniciada às 21:35***
+
+![Décimo Primeiro dia do app foi bem fraco](https://i.imgur.com/TnPP8Ji.jpg)
+
+***Etapa finalizada às 22:20*** 🔚
 
 
-***Etapa finalizada às 23 *** 🔚
 
-
-#### Total PRANCHA: 
-#### Total ABDOMINAIS:
+#### Total ABDOMINAIS: 1100 // MEU RECORD ATUAL** 🔥💪🏆
+#### Total PRANCHA: 20 minutos
 
 <hr>
 
 <br>
 <br>
+
+
+
+
+### 22/05/2019 - Quarta-feira
+
+**Hoje é um dia que farei menos exercícios pq estou cheio de trampo acumulado!**
+
+> **Só no café!**
+
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 09:30***
+
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+
+TOTAL = 200
+META = 1200
+
+
+***Etapa finalizada às  com  abdominais*** 🔚
+
+<hr>
+
+<br>
+<br>
+
 
 ## Explicação 
 

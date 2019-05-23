@@ -1027,8 +1027,9 @@ TOTAL = 500
 🔛***Etapa iniciada às 13:00**
 
 - 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
 
-TOTAL = 50
+TOTAL = 100
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)

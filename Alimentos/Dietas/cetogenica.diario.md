@@ -241,8 +241,25 @@ Peso: 63Kg
   - Fibra alimentar: 0g;
   - Sódio: 0mg;
 
-- **carne suína frita (50g)**
+- **costeleta de porco frita (50g)**
+Kilojoules	493,712 kj
+Calorias	118 kcal
+Carboidratos	0 g
+ 	Açúcar	0 g
+Proteínas	13,12 g
+Gorduras	6,85 g
+ 	Gordura Saturada	2,539 g
+ 	Gordura Monoinsaturada	2,999 g
+ 	Gordura Poliinsaturada	0,664 g
+Colesterol	39 mg
+Fibras	0 g
+Sódio	181 mg
+Potássio	190 mg
 
+#### TOTAL
+- Carboidratos: 1,45g;
+- Proteínas: 13,77g;
+- Gorduras: 6,95g;
 
 
 ### Jantar - 21:30
@@ -254,3 +271,26 @@ Peso: 63Kg
 ### Lanchinho - 22:30
 
 - **amendoim cru (75g)**
+
+  - Valor energético:	450kcal/1.885kJ
+  - Carboidratos:	4,5g
+  - Proteínas: 25g;
+  - Gorduras totais: 34g;
+    - Gorduras saturadas:	7,5g;
+    - Gorduras trans:	0g;
+  - Fibra alimentar: 0g;
+  - Sódio:	332 mg;
+
+
+
+
+## Quarta-feira - 22/Maio/2019
+
+
+### Café da manhã - 08:30
+
+- 2L de café!!!
+
+
+
+### Almoço - 13:50

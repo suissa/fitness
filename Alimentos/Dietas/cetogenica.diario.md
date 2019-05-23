@@ -293,4 +293,42 @@ Potássio	190 mg
 
 
 
-### Almoço - 13:50
+### Almoço - 13:40
+
+- **carne moída cozida (200g)**
+Kilojoules	769,856 kj
+Calorias	184 kcal
+Carboidratos	0 g
+ 	Açúcar	0 g
+Proteínas	22,19 g
+Gorduras	9,97 g
+ 	Gordura Saturada	3,935 g
+ 	Gordura Trans	0,624 g
+ 	Gordura Monoinsaturada	4,203 g
+ 	Gordura Poliinsaturada	0,357 g
+Colesterol	72 mg
+Fibras	0 g
+Sódio	58 mg
+Potássio	283 mg
+
+- **alface verde lisa (50g)**
+  - Valor energético: 9,5 kcal;
+  - Carboidratos: 1,45g;
+  - Proteínas: 0,65g;
+  - Gorduras totais: 0,1g;
+    - Gorduras saturadas: 0g;
+  - Fibra alimentar: 0g;
+  - Sódio: 0mg;
+
+
+#### TOTAL ALMOÇO
+- Carboidratos: 1,45g;
+- Proteínas: 13,77g;
+
+### Lanche da tarde: 16:30
+
+- **cerveja (2 latinhas)**
+  - Valor energético: 280kcal/1176kJ;
+  - Carboidratos: 24g;
+  - Proteínas: 2,2g;
+  - Sódio: 22mg;

@@ -1024,12 +1024,26 @@ TOTAL = 500
 ***Etapa finalizada às 11:30 com 500 abdominais*** 🔚
 
 
-🔛***Etapa iniciada às 13:00**
+🔛***Etapa iniciada às 18:20**
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem deitar)
 
-TOTAL = 100
+TOTAL = 350
+
+
+
+- 50x 8Kg (mov. curto sem subir)
+
+
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem subir)
+
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)

@@ -217,9 +217,11 @@ Peso: 63Kg
 - Proteínas: 147,07g;
 - Gorduras: 84,38g;
 
+
 <hr>
 <br>
 <br>
+
 
 
 ## Quarta-feira - 22/Maio/2019
@@ -284,7 +286,14 @@ Potássio	190 mg
 
 
 
-## Quarta-feira - 22/Maio/2019
+<hr>
+<br>
+<br>
+
+
+
+
+## Quinta-feira - 23/Maio/2019
 
 
 ### Café da manhã - 08:30
@@ -323,7 +332,7 @@ Potássio	283 mg
 
 #### TOTAL ALMOÇO
 - Carboidratos: 1,45g;
-- Proteínas: 13,77g;
+- Proteínas: 22,84g;
 
 ### Lanche da tarde: 16:30
 
@@ -332,3 +341,33 @@ Potássio	283 mg
   - Carboidratos: 24g;
   - Proteínas: 2,2g;
   - Sódio: 22mg;
+
+#### TOTAL Lanche da tarde
+- Carboidratos: 24g;
+- Proteínas: 2,2g;
+- Gorduras totais: 0g;
+- Sódio: 22mg;
+
+### Janta: 20:00
+
+- **peito de frango grelhado (300g)**
+  - Valor energético: 477kcal;
+  - Carboidratos: 0g;
+  - Proteínas: 96g;
+  - Gorduras totais: 7,5g;
+  - Gorduras saturadas: 3g;
+  - Fibra alimentar: 0g;
+  - Sódio: 150mg;
+
+#### TOTAL Janta
+- Carboidratos: 0g;
+- Proteínas: 96g;
+- Gorduras totais: 7,5g;
+- Sódio: 150mg;
+
+
+#### TOTAL Quinta-feira, 23/Maio/2019
+- Carboidratos: 25,45g;
+- Proteínas: 118,84g;
+- Gorduras totais: 7,5g;
+- Sódio: 150mg;

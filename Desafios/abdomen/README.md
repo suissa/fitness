@@ -1024,7 +1024,7 @@ TOTAL = 500
 ***Etapa finalizada às 11:30 com 500 abdominais*** 🔚
 
 
-🔛***Etapa iniciada às 18:20**
+🔛***Etapa iniciada às 18:20***
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
@@ -1033,10 +1033,17 @@ TOTAL = 500
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem deitar)
 
-TOTAL = 350
+TOTAL = 400
+
+> Minha vó ME ENCHEU O SACO PRA FAZER A JANTA AGORA! :(
+
+***Etapa finalizada às 19:50 com 400 abdominais*** 🔚
 
 
+- 50x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (mov. curto sem deitar)
 
 - 50x 8Kg (mov. curto sem subir)
 

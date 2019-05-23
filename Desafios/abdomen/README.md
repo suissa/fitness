@@ -1012,8 +1012,37 @@ TOTAL = 1000
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
 
-TOTAL = 200
+TOTAL = 500
+
+***Etapa finalizada às 11:30 com 500 abdominais*** 🔚
+
+
+🔛***Etapa iniciada às 13:00**
+
+- 50x 8Kg (mov. completo)
+
+TOTAL = 50
+
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+
+
+
+***Etapa finalizada às 15:30 com 500 abdominais*** 🔚
 META = 1200
 
 

@@ -383,3 +383,20 @@ Potássio	283 mg
 
 
 #### TOTAL Quinta-feira, 23/Maio/2019
+
+
+
+<hr>
+<br>
+<br>
+
+
+
+
+## Sexta-feira - 24/Maio/2019
+
+
+### Café da manhã - 07:10
+
+- 1L de café!!!
+

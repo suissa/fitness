@@ -1074,7 +1074,27 @@ TOTAL = 1000
 > **Só no café!** 
 
 
+### **abdominais** 🙏
 
+🔛***Etapa iniciada às 09:30***
+
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+
+
+TOTAL= 150
+
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
+
+
+***Etapa finalizada às  com 500 abdominais*** 🔚
 
 <hr>
 

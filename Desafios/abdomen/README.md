@@ -1041,34 +1041,28 @@ TOTAL = 400
 
 ***Etapa finalizada às 19:50 com 400 abdominais*** 🔚
 
+> Agora fiquei com a  pança CHEIA e já tomei remédio pra dormir! :(
 
-- 50x 8Kg (mov. curto sem deitar)
-- 50x 8Kg (mov. curto sem deitar)
+
+🔛***Etapa iniciada às 21:50***
+
+
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+
+TOTAL = 100
+
 
 - 50x 8Kg (mov. curto sem subir)
-
-
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (mov. curto sem subir)
+- 50x 8Kg (mov. curto sem deitar)
 
-
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
-- 50x 8Kg (mov. completo)
+***Etapa finalizada às 22:30 com 400 abdominais*** 🔚
 
 
 
-***Etapa finalizada às 15:30 com 500 abdominais*** 🔚
-META = 1200
-
-
-***Etapa finalizada às  com  abdominais*** 🔚
+***Etapa finalizada às 19:50 com 900 abdominais*** 🔚
 
 <hr>
 

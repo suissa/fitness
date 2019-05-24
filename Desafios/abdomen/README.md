@@ -1019,10 +1019,7 @@ TOTAL = 1000
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
 
-TOTAL = 500
-
 ***Etapa finalizada às 11:30 com 500 abdominais*** 🔚
-
 
 🔛***Etapa iniciada às 18:20***
 
@@ -1035,34 +1032,29 @@ TOTAL = 500
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (mov. curto sem deitar)
 
-TOTAL = 400
-
 > Minha vó ME ENCHEU O SACO PRA FAZER A JANTA AGORA! :(
 
 ***Etapa finalizada às 19:50 com 400 abdominais*** 🔚
 
 > Agora fiquei com a  pança CHEIA e já tomei remédio pra dormir! :(
 
-
 🔛***Etapa iniciada às 21:50***
-
 
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
-
-TOTAL = 100
-
-
 - 50x 8Kg (mov. curto sem subir)
 - 50x 8Kg (mov. curto sem deitar)
 - 50x 8Kg (mov. curto sem subir)
-- 50x 8Kg (mov. curto sem deitar)
+- 100x 8Kg (mov. curto sem deitar)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (mov. completo)
 
-***Etapa finalizada às 22:30 com 400 abdominais*** 🔚
+***Etapa finalizada às 23:10 com 500 abdominais*** 🔚
 
 
-
-***Etapa finalizada às 19:50 com 900 abdominais*** 🔚
+#### Total ABDOMINAIS: 1400 // MEU RECORD ATUAL** 🔥💪🏆
+#### Total PRANCHA: 0 minutos // foquei só nas abdominais hj pois estava cheio de trampo
 
 <hr>
 

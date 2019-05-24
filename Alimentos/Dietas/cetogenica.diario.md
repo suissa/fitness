@@ -348,26 +348,38 @@ Potássio	283 mg
 - Gorduras totais: 0g;
 - Sódio: 22mg;
 
-### Janta: 20:00
+### Janta: 23:20
 
 - **peito de frango grelhado (300g)**
   - Valor energético: 477kcal;
   - Carboidratos: 0g;
   - Proteínas: 96g;
   - Gorduras totais: 7,5g;
-  - Gorduras saturadas: 3g;
+    - Gorduras saturadas: 3g;
   - Fibra alimentar: 0g;
   - Sódio: 150mg;
+- **abobrinha cozida (70g)**
+  Valor energético:	11,2 kcal;
+  Carboidratos: 2,75g;
+  Proteínas: 0,45g;
+  Gorduras totais: 0,04g;
+  Gorduras saturadas: 0,01g;
+  Fibra alimentar: 0,98g;
+  Sódio: 2,1mg;
+- **sardinha enlatada (60g)**
+  - Valor energético: 108kcal/454kJ;
+  - Carboidratos: 0,9g;
+  - Proteínas: 13g;
+  - Gorduras totais: 5,6g;
+    - Gorduras saturadas: 1,2g;
+  - Fibra alimentar: 0g;
+  - Sódio: 149mg;
 
 #### TOTAL Janta
-- Carboidratos: 0g;
-- Proteínas: 96g;
-- Gorduras totais: 7,5g;
-- Sódio: 150mg;
+- Carboidratos: 3,65g;
+- Proteínas: 109,45g;
+- Gorduras totais: 11,1g;
+- Sódio: 301,1mg;
 
 
 #### TOTAL Quinta-feira, 23/Maio/2019
-- Carboidratos: 25,45g;
-- Proteínas: 118,84g;
-- Gorduras totais: 7,5g;
-- Sódio: 150mg;

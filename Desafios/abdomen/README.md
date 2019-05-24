@@ -997,7 +997,7 @@ TOTAL = 1000
 
 
 
-### 22/05/2019 - Quarta-feira
+### 23/05/2019 - Quarta-feira
 
 **Hoje é um dia que farei menos exercícios pq estou cheio de trampo acumulado!**
 
@@ -1055,6 +1055,26 @@ TOTAL = 1000
 
 #### Total ABDOMINAIS: 1400 // MEU RECORD ATUAL** 🔥💪🏆
 #### Total PRANCHA: 0 minutos // foquei só nas abdominais hj pois estava cheio de trampo
+
+
+
+
+<hr>
+
+<br>
+<br>
+
+
+
+
+### 24/05/2019 - Sexta-feira
+
+**Hoje é um dia que farei menos exercícios pq estou cheio de trampo acumulado!**
+
+> **Só no café!** 
+
+
+
 
 <hr>
 

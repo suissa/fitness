@@ -1076,14 +1076,15 @@ TOTAL = 1000
 
 ### **abdominais** 🙏
 
-🔛***Etapa iniciada às 09:30***
+🔛***Etapa iniciada às 08:10***
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)
+- 50x 8Kg (mov. completo)
 
 
-TOTAL= 150
+TOTAL= 200
 
 - 50x 8Kg (mov. completo)
 - 50x 8Kg (mov. completo)

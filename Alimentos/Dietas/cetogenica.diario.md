@@ -386,6 +386,8 @@ Potássio	283 mg
 
 
 
+
+
 <hr>
 <br>
 <br>
@@ -396,7 +398,21 @@ Potássio	283 mg
 ## Sexta-feira - 24/Maio/2019
 
 
-### Café da manhã - 07:10
+### Café da manhã - 08:30
 
-- 1L de café!!!
+- 2L de café!!!
+- 11:15: **pinhão (1 unidade)** 
+  - Valor energético:	26,55 kcal;
+  - Carboidratos: 5,69g;
+  - Proteínas: 0,5g;
+  - Gorduras totais: 0,19g;
+    - Gorduras saturadas: 0g;
+  - Fibra alimentar: 0,86g;
+  - Sódio: 0mg;
 
+### Almoço - 13:40
+
+- maionese 24g
+- lichia 15g
+- carne moída (200g)
+- queijo prato (2 fatias)

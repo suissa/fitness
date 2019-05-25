@@ -1090,6 +1090,19 @@ TOTAL = 1000
 
 ***Etapa finalizada às 10:40 com 500 abdominais*** 🔚
 
+
+🔛***Etapa iniciada às 15:50***
+
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+- 50x 8Kg (lateral direita)
+- 50x 8Kg (lateral esquerda)
+
+= 200
+
+***Etapa finalizada às  com  abdominais*** 🔚
+
+
 <hr>
 
 <br>

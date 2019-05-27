@@ -1,5 +1,13 @@
 # Proteína
 
+Tempo pra ser absorvida: 1.5 horas;
+Máximo absorvida por hora: 8-10g;
+Máximo absorivido ao mesmo tempo: 20-30g;
+Máxima a ser ingerida: 200-300g/dia;
+Média a ser ingerid: 56g/dia;
+
+Protein is the most important macronutrient when it comes to losing weight. It has been shown to reduce cravings by 60%, boost metabolism by 80–100 calories per day and help you eat up to 441 fewer calories per day
+
 
 > How quickly does protein digest?
 
@@ -11,7 +19,7 @@ Digested food stays in the small intestine for hours, so at the rate of 10 grams
 
 > Is there a limit to protein absorption?
 
-"Some people claim that the body can't absorb more than 20-30 grams of protein at a time. ... And there does seem to be a limit to how much protein the body can use for muscle synthesis at a given time.23 de abr de 2014
+"Some people claim that the body can't absorb more than 20-30 grams of protein at a time. ... And there does seem to be a limit to how much protein the body can use for muscle synthesis at a given time
 
 > What does protein supplements do to your body?
 
@@ -179,3 +187,29 @@ Whey protein is one of the most popular supplements on the planet. But despite i
 > What Does too much protein do to your body?
 
 Consuming too much protein on a regular basis can cause intestinal discomfort and indigestion. People can typically consume 2 g of protein per kg of their body weight daily, long-term, without any significant side effects.
+
+
+<br>
+
+> What are potential health risks associated with the overconsumption of protein?
+
+Extra protein is not used efficiently by the body and may impose a metabolic burden on the bones, kidneys, and liver. Moreover, high-protein/high-meat diets may also be associated with increased risk for coronary heart disease due to intakes of saturated fat and cholesterol or even cancer [31].
+
+
+<br>
+
+> Is too much protein bad for your liver?
+Yes, if you have liver damage or disease you should eat less protein. But if your liver is healthy, then a high-protein diet will not cause liver damage. Verdict: There's no evidence that high-protein diets (2.2g/kg body weight) causes liver damage in healthy adults.
+
+
+<br>
+
+> Is excess protein harmful?
+However, if we eat more than we need, the excess protein will be broken down and used for energy. Even though a relatively high protein intake is healthy and safe, eating massive amounts of protein is unnatural and may cause harm. Traditional populations got most of their calories from fat or carbs, not protein.
+
+
+<br>
+
+> What are the negative effects of protein?
+
+Whey protein is LIKELY SAFE for most children and adults when taken by mouth appropriately. High doses can cause some side effects such as increased bowel movements, nausea, thirst, bloating, cramps, reduced appetite, tiredness (fatigue), and headache.

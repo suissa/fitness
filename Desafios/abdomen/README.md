@@ -1100,7 +1100,33 @@ TOTAL = 1000
 
 = 200
 
-***Etapa finalizada às  com  abdominais*** 🔚
+***Etapa finalizada às 16:20 com 200 abdominais*** 🔚
+
+
+
+#### Total ABDOMINAIS: 700
+#### Total PRANCHA: 0 minutos // foquei só nas abdominais hj pois foda-se
+
+<hr>
+
+<br>
+<br>
+
+
+### 27/05/2019 - Segunda-feira
+
+**Estou resfriado mas consegui nutrir um pouco deódio interno para queimar de combustível!**
+
+> **Só no café!** 
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 08:10***
+
+- 50x 14Kg (mov. completo)
+
+
+***Etapa finalizada às 16:20 com 200 abdominais*** 🔚
 
 
 <hr>

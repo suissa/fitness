@@ -1121,12 +1121,19 @@ TOTAL = 1000
 
 ### **abdominais** 🙏
 
-🔛***Etapa iniciada às 08:10***
+🔛***Etapa iniciada às 14:30***
 
 - 50x 14Kg (mov. completo)
+- 50x 14Kg (mov. completo)
 
+> Achei melhor baixar a qntdade pois estou com tosse e pesa mto no peito.
 
-***Etapa finalizada às 16:20 com 200 abdominais*** 🔚
+- 40x 14Kg (mov. completo)
+
+TTAL = 140
+META = 500
+
+***Etapa finalizada às  com  abdominais*** 🔚
 
 
 <hr>

@@ -1134,11 +1134,9 @@ TOTAL = 1000
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
 
-TOTAL = 260
-META = 500
-
-***Etapa finalizada às  com  abdominais*** 🔚
+***Etapa finalizada às 17:00 com 300 abdominais*** 🔚
 
 
 <hr>

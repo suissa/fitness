@@ -1115,9 +1115,11 @@ TOTAL = 1000
 
 ### 27/05/2019 - Segunda-feira
 
+#### Peso: 62.5kg
+
 **Estou resfriado mas consegui nutrir um pouco deódio interno para queimar de combustível!**
 
-> **Só no café!** 
+> **Almocei forte hj!!** 
 
 ### **abdominais** 🙏
 

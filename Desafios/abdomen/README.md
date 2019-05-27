@@ -1131,8 +1131,11 @@ TOTAL = 1000
 > Achei melhor baixar a qntdade pois estou com tosse e pesa mto no peito.
 
 - 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
 
-TTAL = 140
+TOTAL = 260
 META = 500
 
 ***Etapa finalizada às  com  abdominais*** 🔚

@@ -1189,7 +1189,7 @@ TOTAL = 1000
 
 
 
-#### Total ABDOMINAIS: 
+#### Total ABDOMINAIS: 240 com 14kg
 #### Total PRANCHA: 24min
 
 <hr>

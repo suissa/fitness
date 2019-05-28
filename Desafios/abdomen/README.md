@@ -1098,8 +1098,6 @@ TOTAL = 1000
 - 50x 8Kg (lateral direita)
 - 50x 8Kg (lateral esquerda)
 
-= 200
-
 ***Etapa finalizada às 16:20 com 200 abdominais*** 🔚
 
 
@@ -1154,17 +1152,17 @@ TOTAL = 1000
 
 ### **prancha** 💘
 
-🔛***Etapa iniciada às 07:35***
+🔛***Etapa iniciada às 08:10***
 
 - 3:00 min (reta)
 - 1:30 min (lateral direita)
 - 1:30 min (lateral esquerda)
-
-TORAL = 6
-META = 20 min
-
 - 2:00 min (reta)
 - 1:30 min (lateral esquerda)
+
+TOTAL = 6
+META = 20 min
+
 - 1:30 min (lateral direita)
 - 7:00min => 10x cada lado segurando 30s (lateral com torção)
 - 2:00 min (reta)

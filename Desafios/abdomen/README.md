@@ -1146,6 +1146,39 @@ TOTAL = 1000
 <br>
 <br>
 
+### 28/05/2019 - Terça-feira
+
+#### Peso: 62.5kg // não me pesei hj ainda
+
+> **JEJUM, só no café e água** 
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 07:35***
+
+- 3:00 min (reta)
+- 1:30 min (lateral direita)
+- 1:30 min (lateral esquerda)
+
+TORAL = 6
+META = 20 min
+
+- 2:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 7:00min => 10x cada lado segurando 30s (lateral com torção)
+- 2:00 min (reta)
+
+***Etapa finalizada às 09:45 com total de 20 minutos*** 🔚
+
+#### Total ABDOMINAIS: 
+#### Total PRANCHA: 
+
+<hr>
+
+<br>
+<br>
+
 
 ## Explicação 
 

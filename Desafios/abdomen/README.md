@@ -1138,6 +1138,8 @@ TOTAL = 1000
 
 ***Etapa finalizada às 17:00 com 300 abdominais*** 🔚
 
+#### Total ABDOMINAIS: 300
+#### Total PRANCHA: 0 minutos
 
 <hr>
 

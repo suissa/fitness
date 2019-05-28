@@ -1159,15 +1159,15 @@ TOTAL = 1000
 - 1:30 min (lateral esquerda)
 - 2:00 min (reta)
 - 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
 
-TOTAL = 6
+TOTAL = 11
 META = 20 min
 
-- 1:30 min (lateral direita)
 - 7:00min => 10x cada lado segurando 30s (lateral com torção)
 - 2:00 min (reta)
 
-***Etapa finalizada às 09:45 com total de 20 minutos*** 🔚
+***Etapa finalizada às 10:45 com total de 20 minutos*** 🔚
 
 #### Total ABDOMINAIS: 
 #### Total PRANCHA: 

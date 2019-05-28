@@ -1181,11 +1181,11 @@ TOTAL = 1000
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
 
-TOTAL = 7
-META = 10
+> Meu estômago ta zoado demais pra fazer mais :(
 
-***Etapa finalizada às 18:30 com 300 abdominais*** 🔚
+***Etapa finalizada às 18:30 com 240 abdominais*** 🔚
 
 
 

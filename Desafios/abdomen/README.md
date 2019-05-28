@@ -1168,6 +1168,26 @@ TOTAL = 1000
 
 ***Etapa finalizada às 11:00 com total de 24 minutos*** 🔚
 
+<hr>
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 16:40***
+
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+
+
+TOTAL = 5
+META = 10
+
+***Etapa finalizada às 17:30 com 300 abdominais*** 🔚
+
+
+
 #### Total ABDOMINAIS: 
 #### Total PRANCHA: 24min
 

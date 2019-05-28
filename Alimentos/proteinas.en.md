@@ -213,3 +213,8 @@ However, if we eat more than we need, the excess protein will be broken down and
 > What are the negative effects of protein?
 
 Whey protein is LIKELY SAFE for most children and adults when taken by mouth appropriately. High doses can cause some side effects such as increased bowel movements, nausea, thirst, bloating, cramps, reduced appetite, tiredness (fatigue), and headache.
+
+
+<br>
+
+> High blood protein is not a specific disease or condition in itself. ... Certain proteins in the blood may be elevated as your body fights an infection or some other inflammation. People with certain bone marrow diseases, such as multiple myeloma, may have high blood protein levels before they show any other symptoms.

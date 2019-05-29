@@ -1192,6 +1192,50 @@ TOTAL = 1000
 #### Total ABDOMINAIS: 240 com 14kg
 #### Total PRANCHA: 24min
 
+
+<hr>
+
+<br>
+<br>
+
+### 28/05/2019 - Quarta-feira
+
+#### Peso: 62.5kg // não me pesei hj ainda
+
+> **Café da manhã com 2 ovos cozidos** 
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 11:50***
+
+- 3:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+- 2:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+
+
+- 3:00min => 10x cada lado segurando 30s (lateral com torção)
+
+***Etapa finalizada às 13:00 com total de 12 minutos*** 🔚
+
+
+
+<hr>
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às ***
+
+
+***Etapa finalizada às  com  abdominais*** 🔚
+
+
+
+#### Total ABDOMINAIS: 240 com 14kg
+#### Total PRANCHA: 24min
+
 <hr>
 
 <br>

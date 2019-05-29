@@ -416,3 +416,28 @@ Potássio	283 mg
 - lichia 15g
 - carne moída (200g)
 - queijo prato (2 fatias)
+
+
+
+
+
+<hr>
+<br>
+<br>
+
+
+
+
+## Quarta-feira - 29/Maio/2019
+
+
+### Café da manhã - 08:30
+
+- 2 ovos cozidos com lichia
+- 1L de café!!!
+
+### Almoço - 13:10
+
+- peito de frango grelhado (100g)
+- tomate (1/2 unidade)
+- 8 fatias de batata frita (fatias bem finas)

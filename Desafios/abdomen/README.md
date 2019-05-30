@@ -1236,6 +1236,51 @@ TOTAL = 1000
 #### Total ABDOMINAIS: 240 com 14kg
 #### Total PRANCHA: 24min
 
+
+
+<hr>
+
+<br>
+<br>
+
+### 28/05/2019 - Quinta-feira
+
+#### Peso: 62.5kg // não me pesei hj ainda
+
+> **Café da manhã com 2 ovos cozidos** 
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 09:40***
+
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+
+> PAUSA pra comer 3 ovos de café da manhã!
+
+TOTAL = 5
+META = 10
+
+***Etapa finalizada às 11:50 com total de *** 🔚
+
+
+
+<hr>
+
+
+🔛***Etapa iniciada às ***
+
+
+***Etapa finalizada às  com  abdominais*** 🔚
+
+
+
+#### Total ABDOMINAIS: 240 com 14kg
+#### Total PRANCHA: 24min
+
 <hr>
 
 <br>

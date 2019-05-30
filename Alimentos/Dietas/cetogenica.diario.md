@@ -441,3 +441,27 @@ Potássio	283 mg
 - peito de frango grelhado (100g)
 - tomate (1/2 unidade)
 - 8 fatias de batata frita (fatias bem finas)
+
+### Janta
+
+- pavê doce PA CARAIO
+
+
+<hr>
+<br>
+<br>
+
+
+
+
+## Quinta-feira - 30/Maio/2019
+
+
+### Café da manhã - 08:30
+
+- 1L de café!!!
+
+### Almoço - 13:10
+
+
+### Janta

@@ -1261,10 +1261,13 @@ TOTAL = 1000
 
 > PAUSA pra comer 3 ovos de café da manhã!
 
-TOTAL = 5
-META = 10
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
 
-***Etapa finalizada às 11:50 com total de *** 🔚
+***Etapa finalizada às 12:30 com total de 300 abdominais*** 🔚
 
 
 

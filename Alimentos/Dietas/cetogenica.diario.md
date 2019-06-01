@@ -461,7 +461,46 @@ Potássio	283 mg
 
 - 1L de café!!!
 
-### Almoço - 13:10
+### Almoço - 12:30
+
+- 200g de carne bovina cozida com cenoura
+- azeite
+- linhaça
+
+
+#### Pós-almoço - 13:20
+
+- 1 coca cola café espresso (220ml)
+  - Carboidratos: 11g
+
+
+
+### Janta
+
+- pratão de couve frita com bacon
+- peito de frnago grelhado com queijo branco
+- saalda de tomate
+
+<hr>
+<br>
+<br>
+
+
+
+
+## Sábado - 01/Junho/2019
+
+
+### Café da manhã - 10:30
+
+- 1L de café!!!
+- 1/2 abacate
+
+### Almoço - 12:30
+
+
+
+#### Pós-almoço - 13:20
 
 
 ### Janta

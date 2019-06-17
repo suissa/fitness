@@ -1289,6 +1289,18 @@ TOTAL = 1000
 <br>
 <br>
 
+![Keep Calm que hoje eu vou treinar](http://poster.keepcalmandposters.com/1806687.png)
+
+
+
+
+
+
+<hr>
+
+<br>
+<br>
+
 
 ## Explicação 
 

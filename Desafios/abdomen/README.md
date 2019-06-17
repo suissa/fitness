@@ -1304,10 +1304,8 @@ TOTAL = 1000
 - 2:00 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-
 - 14:00min => 10x cada lado segurando 30s (lateral com torção)
-
-
+- 2:00 min (reta)
 - 2:00 min (reta)
 - 2:00 min (reta)
 - 1:00 min (lateral esquerda)
@@ -1315,7 +1313,7 @@ TOTAL = 1000
 
 
 
-***Etapa finalizada às 16:20 com total de 22 minutos*** 🔚
+***Etapa finalizada às 17:14 com total de 30 minutos*** 🔚
 
 
 <hr>

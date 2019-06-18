@@ -1315,6 +1315,7 @@ TOTAL = 1000
 ***Etapa finalizada às 17:14 com total de 30 minutos*** 🔚
 
 
+
 <hr>
 
 <br>
@@ -1344,6 +1345,31 @@ TOTAL = 1000
 - 2:00 min (reta)
 
 ***Etapa finalizada às 11:46 com total de 36 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
+
+
+<hr>
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 19:20***
+
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+
+=120
+
+- 30x 14Kg (mov. completo)
+
+- 30x 8Kg (mov. curto sem deitar)
+- 30x 8Kg (mov. curto sem subir)
+- 30x 8Kg (mov. curto sem deitar)
+- 30x 8Kg (mov. curto sem subir)
+- 30x 8Kg (mov. curto sem deitar)
+
+
+***Etapa finalizada às 12:30 com total de 300 abdominais*** 🔚
 
 
 <hr>

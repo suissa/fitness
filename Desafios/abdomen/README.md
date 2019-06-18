@@ -827,7 +827,7 @@ TOTAL = 1000
 ***Etapa finalizada às 23:50 com TOTAL de 1000 abdominais*** 🔚
 
 
-#### Total PRANCHA: 34min 🔥💪🏆 // RECORD ATUAL
+#### Total PRANCHA: 34min 🔥💪
 #### Total ABDOMINAIS: 1000 🔥💪
 
 
@@ -1304,13 +1304,12 @@ TOTAL = 1000
 - 2:00 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
-- 14:00min => 10x cada lado segurando 30s (lateral com torção)
+- 14:00min => 14x cada lado segurando 30s (lateral com torção)
 - 2:00 min (reta)
 - 2:00 min (reta)
 - 2:00 min (reta)
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
-
 
 
 ***Etapa finalizada às 17:14 com total de 30 minutos*** 🔚
@@ -1322,6 +1321,35 @@ TOTAL = 1000
 <br>
 
 
+### 18/06/2019 - Terça-feira
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 08:00***
+
+- 3:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+
+> 08:08 - Pausa para comer 3 ovos cozidos.
+
+- 2:00 min (reta)
+- 16:00min => 16x cada lado segurando 30s (lateral com torção)
+- 2:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 2:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 2:00 min (reta)
+
+***Etapa finalizada às 11:46 com total de 36 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
+
+
+<hr>
+
+<br>
+<br>
 ## Explicação 
 
 

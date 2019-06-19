@@ -1361,8 +1361,11 @@ TOTAL = 1000
 
 =150
 
+> 20:10 - PAUSA p/ janta, volto as 21:30
 
 - 30x 8Kg (mov. curto sem deitar)
+
+
 - 30x 8Kg (mov. curto sem subir)
 - 30x 8Kg (mov. curto sem deitar)
 - 30x 8Kg (mov. curto sem subir)

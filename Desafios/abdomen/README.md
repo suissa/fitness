@@ -1346,7 +1346,6 @@ TOTAL = 1000
 
 ***Etapa finalizada às 11:46 com total de 36 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
 
-
 <hr>
 
 ### **abdominais** 🙏
@@ -1359,7 +1358,6 @@ TOTAL = 1000
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 
-
 > 20:10 - PAUSA p/ janta, volto as 21:30
 
 - 30x 8Kg (mov. curto sem deitar)
@@ -1367,8 +1365,46 @@ TOTAL = 1000
 - 60x 8Kg (mov. curto sem deitar)
 - 30x 8Kg (mov. curto sem subir)
 
-
 ***Etapa finalizada às 22:00 com total de 300 abdominais*** 🔚
+
+
+<hr>
+
+<br>
+<br>
+
+
+### 18/06/2019 - Quarta-feira
+
+### **abdominais** 🙏
+
+
+🔛***Etapa iniciada às 09:50***
+
+
+🔛***Etapa iniciada às 19:20***
+
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+
+=120
+==200
+
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+
+
+- 30x 8Kg (mov. curto sem deitar)
+- 30x 8Kg (mov. curto sem subir)
+- 60x 8Kg (mov. curto sem deitar)
+- 30x 8Kg (mov. curto sem subir)
+
+***Etapa finalizada às 22:00 com total de 500 abdominais*** 🔚
+
+
 
 
 <hr>

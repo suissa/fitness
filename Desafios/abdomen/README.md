@@ -1378,31 +1378,24 @@ TOTAL = 1000
 
 ### **abdominais** 🙏
 
-
 🔛***Etapa iniciada às 09:50***
 
 
-🔛***Etapa iniciada às 19:20***
-
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
 
-=120
-==200
+=200
 
-- 30x 14Kg (mov. completo)
-- 30x 14Kg (mov. completo)
-- 30x 14Kg (mov. completo)
-- 30x 14Kg (mov. completo)
+- 40x 8Kg (mov. curto sem deitar)
+- 40x 8Kg (mov. curto sem subir)
+- 40x 8Kg (mov. curto sem deitar)
+- 40x 8Kg (mov. curto sem subir)
+- 40x 8Kg (mov. curto sem deitar)
 
-
-- 30x 8Kg (mov. curto sem deitar)
-- 30x 8Kg (mov. curto sem subir)
-- 60x 8Kg (mov. curto sem deitar)
-- 30x 8Kg (mov. curto sem subir)
-
-***Etapa finalizada às 22:00 com total de 500 abdominais*** 🔚
+***Etapa finalizada às  com total de 400 abdominais*** 🔚
 
 
 

@@ -1394,9 +1394,14 @@ TOTAL = 1000
 
 - 80x 8Kg (mov. curto sem deitar)
 - 40x 8Kg (mov. curto sem subir)
+- 40x 8Kg (mov. curto sem deitar)
 
-=440
+=480
 
+- 40x 8Kg (mov. curto sem deitar)
+- 40x 8Kg (mov. curto sem subir)
+- 40x 8Kg (mov. curto sem subir)
+- 40x 8Kg (mov. curto sem deitar)
 
 ***Etapa finalizada às  com total de 400 abdominais*** 🔚
 

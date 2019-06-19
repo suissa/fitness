@@ -1359,20 +1359,16 @@ TOTAL = 1000
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 
-=150
 
 > 20:10 - PAUSA p/ janta, volto as 21:30
 
 - 30x 8Kg (mov. curto sem deitar)
-
-
 - 30x 8Kg (mov. curto sem subir)
-- 30x 8Kg (mov. curto sem deitar)
+- 60x 8Kg (mov. curto sem deitar)
 - 30x 8Kg (mov. curto sem subir)
-- 30x 8Kg (mov. curto sem deitar)
 
 
-***Etapa finalizada às 12:30 com total de 300 abdominais*** 🔚
+***Etapa finalizada às 22:00 com total de 300 abdominais*** 🔚
 
 
 <hr>

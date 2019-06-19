@@ -1402,10 +1402,10 @@ TOTAL = 1000
 - 60x 8Kg (mov. curto sem deitar)
 - 40x 8Kg (mov. curto sem subir)
 - 40x 14Kg (mov. completo)
-
-=780
-
 - 40x 14Kg (mov. completo)
+
+=820
+
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
@@ -1414,7 +1414,7 @@ TOTAL = 1000
 
 = 1020
 
-***Etapa finalizada às  com total de 600 abdominais*** 🔚
+***Etapa finalizada às  com total de 1020 abdominais*** 🔚
 
 
 

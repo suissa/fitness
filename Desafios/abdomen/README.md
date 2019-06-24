@@ -1486,6 +1486,7 @@ TOTAL = 1000
 
 =450
 
+> PAUSA PRA TRABALHAR!
 
 
 - 40x 14Kg (mov. curto sem deitar)

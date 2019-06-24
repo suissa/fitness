@@ -1483,8 +1483,9 @@ TOTAL = 1000
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 50x 14Kg (mov. completo)
+- 50x 14Kg (mov. completo)
 
-=450
+=500
 
 > PAUSA PRA TRABALHAR!
 

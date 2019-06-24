@@ -1386,28 +1386,112 @@ TOTAL = 1000
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
-- 40x 8Kg (mov. curto sem deitar)
-- 40x 8Kg (mov. curto sem deitar)
-- 40x 8Kg (mov. curto sem subir)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
 
 > PAUSA PRO ALMOÇO
 
-- 80x 8Kg (mov. curto sem deitar)
-- 40x 8Kg (mov. curto sem subir)
-- 40x 8Kg (mov. curto sem deitar)
-- 40x 8Kg (mov. curto sem deitar)
-- 40x 8Kg (mov. curto sem subir)
-- 40x 8Kg (mov. curto sem subir)
-- 40x 8Kg (mov. curto sem deitar)
-- 60x 8Kg (mov. curto sem deitar)
-- 40x 8Kg (mov. curto sem subir)
+- 80x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+- 40x 14Kg (mov. curto sem subir)
+- 40x 14Kg (mov. curto sem deitar)
+- 60x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
-- 40x 8Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem deitar)
+
+
+***Etapa finalizada às 23:10 com total de 1020 abdominais*** 🔚
+
+
+<hr>
+
+<br>
+<br>
+
+
+### 18/06/2019 - Quarta-feira
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 14:00***
+
+
+- 100x 14Kg (mov. completo)
+
+
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+
+> PAUSA PRO ALMOÇO
+
+- 80x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+- 40x 14Kg (mov. curto sem subir)
+- 40x 14Kg (mov. curto sem deitar)
+- 60x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. curto sem deitar)
+
+
+***Etapa finalizada às 23:10 com total de 1020 abdominais*** 🔚
+
+
+
+<hr>
+
+<br>
+<br>
+
+
+### 24/06/2019 - Segunda-feira
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 15:30***
+
+
+- 60x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 60x 14Kg (mov. completo)
+- 60x 14Kg (mov. completo)
+- 60x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 50x 14Kg (mov. completo)
+
+=450
+
+
+
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+
 
 ***Etapa finalizada às 23:10 com total de 1020 abdominais*** 🔚
 

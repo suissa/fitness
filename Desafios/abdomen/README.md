@@ -1485,23 +1485,23 @@ TOTAL = 1000
 - 50x 14Kg (mov. completo)
 - 50x 14Kg (mov. completo)
 
+= 500
 
 > PAUSA PRA TRABALHAR!
 
 - 100x 14Kg (mov. completo)
 - 50x 14Kg (mov. curto sem deitar)
 - 50x 14Kg (mov. curto sem subir)
-
-=700
-
-
-- 40x 14Kg (mov. curto sem subir)
+- 50x 14Kg (mov. completo)
+- 50x 14Kg (mov. completo)
+- 50x 14Kg (mov. completo)
 - 50x 14Kg (mov. curto sem deitar)
 
-- 40x 14Kg (mov. curto sem deitar)
+=900
 
 
-***Etapa finalizada às 23:10 com total de 1020 abdominais*** 🔚
+
+***Etapa finalizada às 22:10 com total de  abdominais*** 🔚
 
 
 

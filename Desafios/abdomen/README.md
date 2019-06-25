@@ -1473,7 +1473,6 @@ TOTAL = 1000
 
 🔛***Etapa iniciada às 15:30***
 
-
 - 60x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
@@ -1496,12 +1495,12 @@ TOTAL = 1000
 - 50x 14Kg (mov. completo)
 - 50x 14Kg (mov. completo)
 - 50x 14Kg (mov. curto sem deitar)
+- 50x 14Kg (mov. completo)
+- 50x 14Kg (mov. completo)
 
-=900
+=1000
 
-
-
-***Etapa finalizada às 22:10 com total de  abdominais*** 🔚
+***Etapa finalizada às 23:05 com total de 1000 abdominais*** 🔚
 
 
 

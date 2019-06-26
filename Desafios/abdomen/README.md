@@ -1344,7 +1344,7 @@ TOTAL = 1000
 - 1:30 min (lateral direita)
 - 2:00 min (reta)
 
-***Etapa finalizada às 11:46 com total de 36 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
+***Etapa finalizada às 11:46 com total de 36 minutos*** 🔚
 
 <hr>
 
@@ -1522,28 +1522,27 @@ TOTAL = 1000
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
 
-= 17
-
 > PAUSA PARA O ALMOÇO 12:50
 > VOLTANDO 15:40
 
 - 2:00 min (reta)
 - 3:00 min (reta)
+- 3:00 min (reta)
+- 2:00 min (lateral esquerda)
+- 2:00 min (lateral direita)
+- 4:00min => 4x cada lado segurando 30s (lateral com torção)
+- 3:00 min (reta)
+- 2:00 min (lateral esquerda)
 
-= 22
+= 38
+- 2:00 min (lateral direita)
+
+
 
 == 40min
 
-- 2:00 min (reta)
-- 14:00min => 14x cada lado segurando 30s (lateral com torção)
-- 2:00 min (reta)
-- 2:00 min (reta)
-- 2:00 min (reta)
-- 1:00 min (lateral esquerda)
-- 1:00 min (lateral direita)
 
-
-***Etapa finalizada às 17:14 com total de 30 minutos*** 🔚
+***Etapa finalizada às 19:00 com total de 40 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
 
 <hr>
 

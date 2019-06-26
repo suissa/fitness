@@ -132,7 +132,7 @@ Minha meta é fazer sempre mais de 1 minuto de prancha, até totalizar 10 minuto
 ### 04/05/2019 - Sábado
 
 *Manhã:*
-- 🌟**5:00 min (reta) // MEU RECORD ATUAL** 🏆 
+- 🌟**5:00 min (reta)
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
 
@@ -1516,7 +1516,7 @@ TOTAL = 1000
 
 🔛***Etapa iniciada às 11:20***
 
-- 6:00 min (reta)
+- 🌟**6:00 min (reta) // MEU RECORD ATUAL** 🏆 
 
 == 30min
 - 2:00 min (reta)

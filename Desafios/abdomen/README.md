@@ -1511,7 +1511,6 @@ TOTAL = 1000
 
 ### 26/06/2019 - Quarta-feira
 
-
 ### **prancha** 💘
 
 🔛***Etapa iniciada às 11:20***
@@ -1533,16 +1532,9 @@ TOTAL = 1000
 - 4:00min => 4x cada lado segurando 30s (lateral com torção)
 - 3:00 min (reta)
 - 2:00 min (lateral esquerda)
-
-= 38
 - 2:00 min (lateral direita)
 
-
-
-== 40min
-
-
-***Etapa finalizada às 19:00 com total de 40 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
+***Etapa finalizada às 19:10 com total de 40 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
 
 <hr>
 

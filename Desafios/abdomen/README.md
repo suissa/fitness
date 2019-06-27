@@ -1553,15 +1553,16 @@ TOTAL = 1000
 - 3:00 min (reta)
 - 3:00 min (reta)
 - 3:00 min (reta)
+- 3:00 min (reta)
+- 2:00 min (lateral esquerda)
+- 2:00 min (lateral direita)
 
-=9
 
+=16
 == 60min
 
 
 - 4:00 min (reta)
-- 2:00 min (lateral esquerda)
-- 2:00 min (lateral direita)
 
 
 - 2:00 min (reta)

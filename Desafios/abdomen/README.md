@@ -1536,18 +1536,50 @@ TOTAL = 1000
 
 ***Etapa finalizada às 19:10 com total de 40 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
 
-<hr>
-
-### **abdominais** 🙏
-
-🔛***Etapa iniciada às 15:30***
-
-***Etapa finalizada às 23:05 com total de 1000 abdominais*** 🔚
-
-
-
 
 <hr>
+
+<br>
+<br>
+
+
+### 27/06/2019 - Quinta-feira
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 10:02***
+
+
+- 3:00 min (reta)
+- 3:00 min (reta)
+
+=6
+
+== 60min
+
+
+- 4:00 min (reta)
+- 2:00 min (lateral esquerda)
+- 2:00 min (lateral direita)
+
+
+- 2:00 min (reta)
+- 3:00 min (reta)
+- 3:00 min (reta)
+- 2:00 min (lateral esquerda)
+- 2:00 min (lateral direita)
+- 4:00min => 4x cada lado segurando 30s (lateral com torção)
+- 3:00 min (reta)
+- 2:00 min (lateral esquerda)
+- 2:00 min (lateral direita)
+
+***Etapa finalizada às 19:10 com total de 40 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
+
+
+
+
+<hr>
+
 
 <br>
 <br>

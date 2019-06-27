@@ -1552,8 +1552,9 @@ TOTAL = 1000
 
 - 3:00 min (reta)
 - 3:00 min (reta)
+- 3:00 min (reta)
 
-=6
+=9
 
 == 60min
 

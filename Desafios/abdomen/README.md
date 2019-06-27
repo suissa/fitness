@@ -1556,13 +1556,22 @@ TOTAL = 1000
 - 3:00 min (reta)
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
+- 3:00 min (reta)
+- 0:30 min (lateral esquerda)
+- 0:30 min (lateral direita)
+
+=20
+
+> PAUSA PARA O ALMOÇO: 13:00
+> VOLTEI: 16:40
+
+- 3:00 min (reta)
+
+=23
 
 
-=16
 == 60min
 
-
-- 4:00 min (reta)
 
 
 - 2:00 min (reta)

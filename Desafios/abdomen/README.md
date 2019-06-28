@@ -1560,31 +1560,46 @@ TOTAL = 1000
 - 0:30 min (lateral esquerda)
 - 0:30 min (lateral direita)
 
-=20
-
 > PAUSA PARA O ALMOÇO: 13:00
 > VOLTEI: 16:40
 
 - 3:00 min (reta)
-
-=23
-
-
-== 60min
-
-
-
 - 2:00 min (reta)
-- 3:00 min (reta)
-- 3:00 min (reta)
-- 2:00 min (lateral esquerda)
-- 2:00 min (lateral direita)
 - 4:00min => 4x cada lado segurando 30s (lateral com torção)
+
+***Etapa finalizada às 19:10 com total de 29 minutos*** 🔚
+
+
+<hr>
+
+<br>
+<br>
+
+
+### 28/06/2019 - Sexta-feira
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 19:30***
+
+
 - 3:00 min (reta)
+- 2:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+- 2:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+
+= 11
+
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
 
-***Etapa finalizada às 19:10 com total de 40 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
+- 4:00min => 4x cada lado segurando 30s (lateral com torção)
+
+***Etapa finalizada às 19:10 com total de 29 minutos*** 🔚
+
 
 
 

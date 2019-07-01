@@ -1594,14 +1594,37 @@ TOTAL = 1000
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 
-= 16
+***Etapa finalizada às 19:10 com total de 16 minutos*** 🔚
 
-- 2:00 min (lateral esquerda)
-- 2:00 min (lateral direita)
 
+<hr>
+
+<br>
+<br>
+
+
+### 01/07/2019 - Segunda-feira
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 17:20***
+
+
+- 2:00 min (reta)
+
+=2
+
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+- 2:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+- 3:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
 - 4:00min => 4x cada lado segurando 30s (lateral com torção)
 
-***Etapa finalizada às 19:10 com total de 29 minutos*** 🔚
+***Etapa finalizada às com total de  minutos*** 🔚
 
 
 

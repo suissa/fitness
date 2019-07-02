@@ -1609,7 +1609,6 @@ TOTAL = 1000
 
 🔛***Etapa iniciada às 17:20***
 
-
 - 2:00 min (reta)
 - 3:00 min (reta)
 - 2:00 min (lateral esquerda)
@@ -1620,10 +1619,41 @@ TOTAL = 1000
 - 1:00 min (lateral esquerda)
 - 1:00 min (lateral direita)
 - 3:00 min (reta)
+- 2:00 min (reta)
 
-=23
+***Etapa finalizada às 21:12 com total de 25 minutos*** 🔚
 
-***Etapa finalizada às com total de  minutos*** 🔚
+
+<hr>
+
+<br>
+<br>
+
+
+### 02/07/2019 - Terça-feira
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 16:30***
+
+
+- 40x 14Kg (mov. completo)
+
+=40
+
+
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem deitar)
+- 40x 14Kg (mov. curto sem subir)
+
+
+=400
+
+***Etapa finalizada às 23:10 com total de 1020 abdominais*** 🔚
+
 
 
 

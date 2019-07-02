@@ -1639,8 +1639,10 @@ TOTAL = 1000
 
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. curto sem deitar)
 
-=80
+=160
 
 
 - 40x 14Kg (mov. completo)

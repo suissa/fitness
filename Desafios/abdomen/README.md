@@ -1636,7 +1636,6 @@ TOTAL = 1000
 
 🔛***Etapa iniciada às 16:30***
 
-
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
@@ -1644,15 +1643,12 @@ TOTAL = 1000
 - 40x 14Kg (mov. curto sem subir)
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. completo)
-
-=280
-
-
-
-- 40x 14Kg (mov. curto sem deitar)
-- 40x 14Kg (mov. curto sem subir)
 - 40x 14Kg (mov. completo)
+- 40x 14Kg (mov. curto sem deitar)
 
+=360
+
+- 40x 14Kg (mov. curto sem subir)
 
 =400
 

@@ -1646,13 +1646,38 @@ TOTAL = 1000
 - 40x 14Kg (mov. completo)
 - 40x 14Kg (mov. curto sem deitar)
 
-=360
+***Etapa finalizada às 19:00 com total de 360 abdominais*** 🔚
 
-- 40x 14Kg (mov. curto sem subir)
+<hr>
 
-=400
+<br>
+<br>
 
-***Etapa finalizada às  com total de  abdominais*** 🔚
+
+### 08/07/2019 - Segunda-feira
+
+### **prancha** 💘
+
+🔛***Etapa iniciada às 12:10***
+
+- 3:00 min (reta)
+- 2:00 min (reta)
+
+=5
+
+== 30
+
+- 2:00 min (lateral esquerda)
+- 2:00 min (lateral direita)
+- 3:00 min (reta)
+- 4:00min => 4x cada lado segurando 30s (lateral com torção)
+- 2:00 min (reta)
+- 1:00 min (lateral esquerda)
+- 1:00 min (lateral direita)
+- 3:00 min (reta)
+- 2:00 min (reta)
+
+***Etapa finalizada às  com total de  minutos*** 🔚
 
 
 

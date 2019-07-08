@@ -1664,8 +1664,11 @@ TOTAL = 1000
 - 2:00 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
+- 3:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
 
-=8
+=14
 
 == 30
 

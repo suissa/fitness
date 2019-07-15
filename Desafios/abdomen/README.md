@@ -1708,14 +1708,20 @@ TOTAL = 1000
 > VOLTA do ALMOÇO 15:50
 
 - 2:00 min (reta)
+- 2:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 2:00 min (reta)
+- 4:00min => 4x cada lado segurando 30s (lateral com torção)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
 
-=25
+=39
+
 
 == 60
 
 
-- 1:30 min (lateral esquerda)
-- 1:30 min (lateral direita)
 - 3:00 min (reta)
 - 2:00 min (reta)
 - 2:00 min (reta)

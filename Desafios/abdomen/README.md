@@ -1696,9 +1696,11 @@ TOTAL = 1000
 🔛***Etapa iniciada às 11:11***
 
 - 4:00 min (reta)
+- 3:00 min (reta)
+- 3:00 min (reta)
 
 
-=4
+=10
 
 == 60
 
@@ -1722,7 +1724,7 @@ TOTAL = 1000
 - 2:00 min (reta)
 - 2:00 min (reta)
 
-***Etapa finalizada às 19:00 com total de 30 minutos*** 🔚
+***Etapa finalizada às  com total de  minutos*** 🔚
 
 
 

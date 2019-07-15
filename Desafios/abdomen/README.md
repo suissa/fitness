@@ -1704,16 +1704,16 @@ TOTAL = 1000
 - 4:00min => 4x cada lado segurando 30s (lateral com torção)
 - 3:00 min (reta)
 
-=23
-
 > PAUSA para o ALMOÇO 13:10
-> VOLTA do ALMOÇO 14:30
+> VOLTA do ALMOÇO 15:50
 
+- 2:00 min (reta)
+
+=25
 
 == 60
 
 
-- 3:00 min (reta)
 - 1:30 min (lateral esquerda)
 - 1:30 min (lateral direita)
 - 3:00 min (reta)

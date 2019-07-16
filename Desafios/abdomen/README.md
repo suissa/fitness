@@ -1534,7 +1534,7 @@ TOTAL = 1000
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
 
-***Etapa finalizada às 19:10 com total de 40 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
+***Etapa finalizada às 19:10 com total de 40 minutos*** 🔚
 
 
 <hr>
@@ -1726,8 +1726,39 @@ TOTAL = 1000
 - 1:00 min (lateral direita)
 - 2:00 min (reta)
 
-***Etapa finalizada às 20:30 com total de 56 minutos*** 🔚
+***Etapa finalizada às 20:30 com total de 56 minutos*** 🔚🔥💪🏆 // RECORD ATUAL
 
+
+<hr>
+
+<br>
+<br>
+
+
+### 16/07/2019 - Terça-feira
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 16:40***
+
+
+- 30x 14Kg (mov. completo)
+
+=30
+==300
+
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+
+
+***Etapa finalizada às  com total de  abdominais*** 🔚
 
 
 <hr>

@@ -1741,7 +1741,6 @@ TOTAL = 1000
 
 🔛***Etapa iniciada às 16:40***
 
-
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
@@ -1751,15 +1750,9 @@ TOTAL = 1000
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
-
-=270
-==300
-
-
 - 30x 14Kg (mov. completo)
 
-
-***Etapa finalizada às  com total de  abdominais*** 🔚
+***Etapa finalizada às 21:00 com total de 300 abdominais*** 🔚
 
 
 <hr>

@@ -1749,13 +1749,13 @@ TOTAL = 1000
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
 
-=210
+=270
 ==300
 
 
-- 30x 14Kg (mov. completo)
-- 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 
 

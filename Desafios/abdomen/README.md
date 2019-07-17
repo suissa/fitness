@@ -1737,6 +1737,38 @@ TOTAL = 1000
 
 ### 16/07/2019 - Terça-feira
 
+### **prancha** 💘
+
+🔛***Etapa iniciada às 16:20***
+
+- 2:00 min (reta)
+- 2:00 min (reta)
+- 2:00 min (lateral esquerda)
+
+=6
+
+==30
+- 3:00 min (reta)
+- 3:00 min (reta)
+- 1:30 min (lateral esquerda)
+- 1:30 min (lateral direita)
+- 3:00 min (reta)
+- 4:00min => 4x cada lado segurando 30s (lateral com torção)
+- 3:00 min (reta)
+
+***Etapa finalizada às  com total de  minutos*** 🔚
+
+
+
+
+<hr>
+
+<br>
+<br>
+
+
+### 17/07/2019 - Quarta-feira
+
 ### **abdominais** 🙏
 
 🔛***Etapa iniciada às 16:40***

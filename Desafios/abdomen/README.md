@@ -1745,19 +1745,10 @@ TOTAL = 1000
 - 2:00 min (reta)
 - 2:00 min (lateral esquerda)
 - 2:00 min (lateral direita)
-
-=8
-
-==30
-- 3:00 min (reta)
-- 3:00 min (reta)
-- 1:30 min (lateral esquerda)
-- 1:30 min (lateral direita)
-- 3:00 min (reta)
+- 2:00 min (reta)
 - 4:00min => 4x cada lado segurando 30s (lateral com torção)
-- 3:00 min (reta)
 
-***Etapa finalizada às  com total de  minutos*** 🔚
+***Etapa finalizada às 17:30 com total de 14 minutos*** 🔚
 
 
 
@@ -1786,6 +1777,37 @@ TOTAL = 1000
 - 30x 14Kg (mov. completo)
 
 ***Etapa finalizada às 21:00 com total de 300 abdominais*** 🔚
+
+
+<hr>
+
+<br>
+<br>
+
+
+### 19/07/2019 - Sexta-feira
+
+### **abdominais** 🙏
+
+🔛***Etapa iniciada às 10:340***
+
+- 30x 14Kg (mov. completo)
+
+=30
+
+==300
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+
+***Etapa finalizada às 21:00 com total de 300 abdominais*** 🔚
+
 
 
 <hr>

@@ -1796,12 +1796,12 @@ TOTAL = 1000
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
+- 30x 14Kg (mov. completo)
 
-=150
+=210
 
 ==300
-- 30x 14Kg (mov. completo)
-- 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
 - 30x 14Kg (mov. completo)
